@@ -131,3 +131,5 @@ The worst of it,  we could all be doing so much better.
 ##Eyes to See
 ##The Vulcans
 
+{% include "./footer.md" %}
+
