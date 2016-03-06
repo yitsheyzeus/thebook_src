@@ -77,3 +77,5 @@ words from out of the fire
 ##Shofar
 
 #phenix and today
+
+{% include "./footer.md" %}
