@@ -239,3 +239,4 @@ JC obvious shares his initials with Jesus Christ.  "Et tu brute" the story of hi
 
 #Ants Marching and the Crown of Thorns
 
+{% include "./footer.md" %}
