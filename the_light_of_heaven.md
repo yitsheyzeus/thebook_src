@@ -86,3 +86,5 @@ Genesis 1:9
 King Saul, the book of Paul.  Son, and Pa.  Who is El?
 
 ##There's a single hidden letter in G-d and Norm-l
+
+{% include "./footer.md" %}
