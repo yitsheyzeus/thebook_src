@@ -12,11 +12,7 @@
 
 </script>
 
-<small>
-
 Copyleft<sup>MT</sup> 
 
-This content is currently released under the GNU GPL 2.0 license.  Please properly attribute and link back to the entire book, or include this entire chapter and this message if you are quoting material.  The source book is located at <a href="http://www.lamc.la">http://www.lamc.la</a> and is written by <a href="http://about.me/ssiah">Adam Marshall Dobrin.</a>
-</small>
-
+This content is currently released under the GNU GPL 2.0 license.  Please properly attribute and link back to the entire book, or include this entire chapter and this message if you are quoting material.  The source book is located at <a href="http://www.lamc.la">http://www.lamc.la</a> and is written by <a href="http://linkedin.com/in/adam5">Adam Marshall Dobrin.</a>
 {% endif %}
