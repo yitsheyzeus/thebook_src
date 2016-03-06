@@ -12,4 +12,5 @@
 </script>
 
 This content is currently released under the GNU 2.0 license.  Please properly attribute and link back to the entire book, or include this entire chapter and this message if you are quoting material.  The source book is located at http://www.lamc.la and is written by Adam Marshall Dobrin.
+
 {% endif %}
