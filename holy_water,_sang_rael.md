@@ -143,3 +143,5 @@ Dave Matthews Band, Squirm
 ```
 
 In God's capable hands, **"we are."**
+
+{% include "./footer.md" %}
