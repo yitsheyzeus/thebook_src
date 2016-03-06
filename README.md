@@ -234,5 +234,5 @@ mucQGEwo/hJmr/orEucmETYSvTXOz+L5X5gNHpzYzE9590FYfbAKvrEhAliKbhhl
 -----END PGP PUBLIC KEY BLOCK-----
 ```
 
-
+{% include "footer.md" %}
 
