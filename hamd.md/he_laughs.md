@@ -96,4 +96,4 @@ This h could be short for Hebrew, which is the purpose of this chapter, to prove
 
 Within the chalice of the true holy grail, is not a drop of Jesus blood, but his whole family.
 
-{% include "./footer.md" %}
+{% include "../footer.md" %}
