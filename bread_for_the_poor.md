@@ -5,3 +5,5 @@ Jail and what some people might think Heaven should be like have lots in common.
 
 ##Green Eggs and Ham, Sam I AM.
 ##The Grey Light
+
+{% include "./footer.md" %}
