@@ -113,4 +113,4 @@ Placing the idea of a centralized controller, something like God, over the peopl
 
 Interestingly Samson, who is also a very strong contender for the most accurate Christ depiction had an enemy bearing "ph" in their name, the Philistines.
  
-
+{% include "./footer.md" %}
