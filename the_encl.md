@@ -43,3 +43,5 @@ Shadow reading book
 
 
 {% endif %}
+
+{% include "./footer.md" %}
