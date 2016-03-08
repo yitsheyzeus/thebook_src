@@ -44,7 +44,7 @@ Relating directly to Pharoah, Pharisees, Phillistines, and Christopher Clumbus, 
 "Our why," it's the key to the first line of Genesis, and the [Holy Grail.](holy_water,_sang_rael.html) In the beginning, the Spirit of God, "SHE KIN AH" hovered over *the waters.*  Holy water is people, Eve is SHE, Kin is RY, and AH is ONE big human family.  All Humanity, ahh...
 
 ###sa
-Melissa, 
+Melissa, Sa-turn/tan/n/vior/int
 
 ###ck
 Kentucky, Yitshack, Calvin Klein (in Back to the Future) and Clark Kent (in Superman 1).  
