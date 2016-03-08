@@ -1,8 +1,20 @@
 # The Matrix is Indexed
 
+
+##idioms of religion, the significance is apocalyptic.
+###an unsung hero
+###don't shoot the messenger
+###blessing in disguise
+###blood is thicker than water
+###ready or not, here i come
+
+##spanglishrew
+
+###[elisha, jesus, jeshurun](the_tower_of_babel.html)
+
 ##words read in reverse
 ###lot
-In relation to the band *tool*, ["Yankee Doodle" in *The Tower of Babel*](the_tower_of_babel.html#TOOL), to Lot's Wife in "The Consort of El" in [*He laughs*](hamd.md/he_laughs.html#SALT).
+In relation to the band *tool*, ["Yankee Doodle" in *The Tower of Babel*](the_tower_of_babel.html#TOOL), to Lot's Wife in "The Consort of El" in [*He laughs, again*](hamd.md/he_laughs.html#SALT).
 
 ###rod
 To The Doors in [*Music Saves All Souls*](music_saves_all_souls.html), the Iron Rod of Christ in [*The Sang Rael*](holy_water,_sang_rael.html)
@@ -15,17 +27,6 @@ The hand of God, that's the answer to ["why A.D.?"](the_letter_why.html)
  
 ###dog
 *I've got to get Sirius.*
-
-##idioms of religion, the significance is apocalyptic.
-###an unsung hero
-###don't shoot the messenger
-###blessing in disguise
-###blood is thicker than water
-###ready or not, here i come
-
-##spanglishrew
-
-###[elisha, jesus, jeshurun](the_tower_of_babel.html)
 
 ##two letter keys
 
