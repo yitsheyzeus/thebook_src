@@ -39,7 +39,10 @@ In the name "Elisha" we see a direct equality between Spanish and English, one w
 Relating directly to Pharoah, Pharisees, Phillistines, and Christopher Clumbus, this two letter key stands for "Pursuit of Happiness."
 
 ###ry
+
 ###sa
+Melissa, 
+
 ###ck
 Kentucky, Yitshack, Calvin Klein (in Back to the Future) and Clark Kent (in Superman 1).  
 
