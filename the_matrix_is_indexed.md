@@ -11,7 +11,7 @@ To The Doors in , the Iron Rod of Christ in [*The Sang Rael*](holy_water,_sang_r
 *I've got to get Sirius.*
 
 ##idioms of religion
-###unsung hero
+###an unsung hero
 ###don't shoot the messenger
 ###blessing in disguise
 ###blood is thicker than water
