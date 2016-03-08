@@ -11,7 +11,7 @@
 ###don't shoot the messenger
 ###blessing in disguise
 ###blood is thicker than water
-###
+###ready or not, here i come
 
 ##spanglishrew
 
@@ -24,11 +24,12 @@
 ###ad
 ###ha
 ###ph
+###ry
 
+###Hg
+###Na
 ###Xe
 ###Fe
 ###Si
-###Na
-###K
-###U
+###KU
 
