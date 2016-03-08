@@ -2,7 +2,7 @@
 
 ##words read in reverse
 ###lot
-In relation to the band *tool*, ["The Ressurection of Osiris" in *The Letter Why*]()
+In relation to the band *tool*, ["Yankee Doodle" in *The Tower of Babel*](the_tower_of_babel.html#TOOL)
 ###rod
 ###yad
 ###exodus
