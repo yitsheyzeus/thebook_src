@@ -8,10 +8,10 @@ In relation to the band *tool*, ["Yankee Doodle" in *The Tower of Babel*](the_to
 To The Doors in , the Iron Rod of Christ in [*The Sang Rael*](holy_water,_sang_rael.html)
 
 ###yad
-The hand of God, that's the answer to "why A.D.?"
+The hand of God, that's the answer to ["why A.D.?"](the_letter_why.html)
 
 ###exodus
- “sudo xe” is the logical equivalent of “ Let there be Light.” [Exodus in reverse;](behold,_the_burning_bush.html) in Linux and chemistry. It's my native "Geek," to be "tongue in cheek." 
+ “sudo xe” is the logical equivalent of “ Let there be Light.” [Exodus in reverse;](behold,_the_burning_bush.html#LIGHT) in Linux and chemistry. It's my native "Geek," to be "tongue in cheek." 
  
 ###dog
 *I've got to get Sirius.*
