@@ -50,7 +50,7 @@ Melissa, Sa-turn/tan/n/vior/int
 Kentucky, Yitshack, Calvin Klein (in Back to the Future) and Clark Kent (in Superman 1).  
 
 ###is
-Israel, Elisha and Jesus, 
+Israel, Elisha and Jesus, Ishmael, Ishtar, Isaac, Isa
 
 ##It's elementary, my dear What-son?
 ###Hg
