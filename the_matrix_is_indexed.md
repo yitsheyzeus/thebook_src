@@ -55,7 +55,8 @@ Israel, Elisha and Jesus, Ishmael, Ishtar, Isaac, Isa, Islam
 ###am
 America, Amerigo, Amish, Amon-Ra, I AM
 
-##Run, Ran, Lamb and Lam.
+##[Run, Ran, Lamb and Lam.](the_lamb_of_god.html)
+Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of how I found out the Lamb of God isLam.
 
 ##It's elementary, my dear What-son?
 ###Hg
