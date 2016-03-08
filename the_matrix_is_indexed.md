@@ -28,6 +28,8 @@ To The Doors in , the Iron Rod of Christ in [*The Sang Rael*](holy_water,_sang_r
 ###ad
 ###ha
 ###ph
+Relating directly to Pharoah, Pharisees, Phillistines, and Christopher Clumbus, this two letter key stands for "Pursuit of Happiness."
+
 ###ry
 ###sa
 ###ck
