@@ -38,7 +38,7 @@ It means "the" in Hebrew, and is used as a superlative which connotes a meaning 
 In the name "Elisha" we see a direct equality between Spanish and English, one which combines with the names Jeshurun and Jesus to become a Rosetta Stone that clearly shows foreknowledge of English and Spanish within these names.  Read [*The Tower of Babel*](the_tower_of_babel.html).  This particular teaching is allegorically described in the NT as the feeding of the masses by Jesus, with two fish--often described as being the prophets Elisha and Elija--it is about their names, and the "ha" and "ja" (both the same, in different cultures) that is laughter.
 
 ###ph
-Relating directly to Pharoah, Pharisees, Phillistines, and Christopher Clumbus, this two letter key stands for "Pursuit of Happiness."
+Relating directly to Pharaoh, Pharisees, Philistines, and Christopher Columbus, this two letter key stands for "Pursuit of Happiness."
 
 ###ry
 "Our why," it's the key to the first line of Genesis, and the [Holy Grail.](holy_water,_sang_rael.html) In the beginning, the Spirit of God, "SHE KIN AH" hovered over *the waters.*  Holy water is people, Eve is SHE, Kin is RY, and AH is ONE big human family.  All Humanity, ahh...
@@ -56,7 +56,7 @@ Israel, Elisha and Jesus, Ishmael, Ishtar, Isaac, Isa, Islam
 America, Amerigo, Amish, Amon-Ra, I AM
 
 ##[Run, Ran, Lamb and Lam.](the_lamb_of_god.html)
-Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of how I found out the *"Lamb of God"* isLam.  It's all about a Revelation received *on the run*, even Metroid's Sammas Aran agrees, cheat code: "Justin Bailey."
+Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of how I found out the *"Lamb of God"* isLam.  It's all about a Revelation received *on the run*, even Metroid's Sammas Aran agrees, famous cheat code: "Justin Bailey."
 
 ##It's elementary, my dear What-son?
 ###Hg
