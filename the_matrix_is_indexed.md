@@ -47,6 +47,7 @@ Melissa,
 Kentucky, Yitshack, Calvin Klein (in Back to the Future) and Clark Kent (in Superman 1).  
 
 ###is
+Israel, Elisha and Jesus, 
 
 ###Hg
 ###Na
