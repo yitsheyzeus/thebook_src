@@ -25,9 +25,7 @@ The hand of God, that's the answer to ["why A.D.?"](the_letter_why.html)
 
 ##spanglishrew
 
-###elisha
-###jesus
-###jeshurun
+###[elisha, jesus, jeshurun](the_tower_of_babel.html)
 
 ##two letter keys
 
