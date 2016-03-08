@@ -30,7 +30,7 @@ The hand of God, that's the answer to ["why A.D.?"](the_letter_why.html)
 ##two letter keys
 
 ###ad
-[Gracing the time line with my initials, ADonIS, ADonAi, ADvent, and more.](im_single.html)
+[Gracing the time line with my initials, ADonIS, ADonAi, ADvent, and more.](im_single.html)  IS of course, is god-shorthand for "I'm Single."
 
 ###ha
 It means "the" in Hebrew, and is used as a superlative which connotes a meaning of "holy."  It is the two letters donated to Abraham's name upon his Covenant with God; as well as a reference to the English meaning of his son's name:  Isaac is "he laughs."
