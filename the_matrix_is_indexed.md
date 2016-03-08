@@ -5,7 +5,7 @@
 In relation to the band *tool*, ["Yankee Doodle" in *The Tower of Babel*](the_tower_of_babel.html#TOOL), to Lot's Wife in "The Consort of El" in [*He laughs*](hamd.md/he_laughs.html#SALT).
 
 ###rod
-To The Doors in , the Iron Rod of Christ in [*The Sang Rael*](holy_water,_sang_rael.html)
+To The Doors in [*Music Saves All Souls*](music_saves_all_souls.html), the Iron Rod of Christ in [*The Sang Rael*](holy_water,_sang_rael.html)
 
 ###yad
 The hand of God, that's the answer to ["why A.D.?"](the_letter_why.html)
