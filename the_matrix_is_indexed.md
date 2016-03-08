@@ -49,6 +49,7 @@ Kentucky, Yitshack, Calvin Klein (in Back to the Future) and Clark Kent (in Supe
 ###is
 Israel, Elisha and Jesus, 
 
+##It's elementary, my dear What-son?
 ###Hg
 ###Na
 ###Xe
