@@ -11,6 +11,8 @@ To The Doors in , the Iron Rod of Christ in [*The Sang Rael*](holy_water,_sang_r
 The hand of God, that's the answer to "why A.D.?"
 
 ###exodus
+ “sudo xe” is the logical equivalent of “ Let there be Light.” [Exodus in reverse;](behold,_the_burning_bush.html) in Linux and chemistry. It's my native "Geek," to be "tongue in cheek." 
+ 
 ###dog
 *I've got to get Sirius.*
 
@@ -39,7 +41,7 @@ In the name "Elisha" we see a direct equality between Spanish and English, one w
 Relating directly to Pharoah, Pharisees, Phillistines, and Christopher Clumbus, this two letter key stands for "Pursuit of Happiness."
 
 ###ry
-"Our why," it's the key to the first line of Genesis, and the [Holy Grail.](holy_water,_sang_rael.html) In the beginning, the Spirit of God, "SHE KIN AH" hovered over the waters.  Holy water is people, Eve is SHE, Kin is RY, and AH is ONE big human family.  All Humanity, ahh...
+"Our why," it's the key to the first line of Genesis, and the [Holy Grail.](holy_water,_sang_rael.html) In the beginning, the Spirit of God, "SHE KIN AH" hovered over *the waters.*  Holy water is people, Eve is SHE, Kin is RY, and AH is ONE big human family.  All Humanity, ahh...
 
 ###sa
 Melissa, 
