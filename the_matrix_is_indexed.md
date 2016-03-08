@@ -3,8 +3,8 @@
 ##words read in reverse
 ###lot
 ###rod
-###exodus
 ###yad
+###exodus
 ###dog
 
 ##idioms of religion
