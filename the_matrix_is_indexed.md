@@ -16,7 +16,7 @@ The hand of God, that's the answer to ["why A.D.?"](the_letter_why.html)
 ###dog
 *I've got to get Sirius.*
 
-##idioms of religion
+##idioms of religion, the significance is apocalyptic.
 ###an unsung hero
 ###don't shoot the messenger
 ###blessing in disguise
