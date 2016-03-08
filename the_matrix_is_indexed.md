@@ -4,6 +4,7 @@
 ###lot
 ###rod
 ###exodus
+###yad
 ###dog
 
 ##idioms of religion
