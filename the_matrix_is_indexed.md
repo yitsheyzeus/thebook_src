@@ -2,8 +2,9 @@
 
 ##words read in reverse
 ###lot
-In relation to the band *tool*, ["Yankee Doodle" in *The Tower of Babel*](the_tower_of_babel.html#TOOL).  To Lot's Wife in "The Consort of El" in [*He laughs*](hamd.md/he_laughs.html#SALT).
+In relation to the band *tool*, ["Yankee Doodle" in *The Tower of Babel*](the_tower_of_babel.html#TOOL), to Lot's Wife in "The Consort of El" in [*He laughs*](hamd.md/he_laughs.html#SALT).
 ###rod
+To The Doors in , the Iron Rod of Christ in [*The Sang Rael*](holy_water,_sang_rael.html)
 ###yad
 ###exodus
 ###dog
