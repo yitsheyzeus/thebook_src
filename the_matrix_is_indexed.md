@@ -39,6 +39,7 @@ In the name "Elisha" we see a direct equality between Spanish and English, one w
 Relating directly to Pharoah, Pharisees, Phillistines, and Christopher Clumbus, this two letter key stands for "Pursuit of Happiness."
 
 ###ry
+"Our why," it's the key to the first line of Genesis, and the [Holy Grail.](holy_water,_sang_rael.html) In the beginning, the Spirit of God, "SHE KIN AH" hovered over the waters.  Holy water is people, Eve is SHE, Kin is RY, and AH is ONE big human family.  All Humanity, ahh...
 
 ###sa
 Melissa, 
