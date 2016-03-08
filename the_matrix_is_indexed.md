@@ -41,6 +41,8 @@ Relating directly to Pharoah, Pharisees, Phillistines, and Christopher Clumbus, 
 ###ry
 ###sa
 ###ck
+Kentucky, Yitshack, Calvin Klein (in Back to the Future) and Clark Kent (in Superman 1).  
+
 ###is
 
 ###Hg
