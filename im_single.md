@@ -241,6 +241,10 @@ A real live nephew of my Uncle Sam, born on the day of the Immaculate Conception
 
 What's the point?  Yosemite Sam is doing more than waving his big stick, that's the point.  Our society needs to change--you need to change.  We cannot allow the government to torture people, and malnourishment, sleep deprivation, and a prison system that is intent on not even trying to assist offenders in rectifying their problems, and having successful re-entries into society is *your problem too.*  
 
+Legislatures should be financially incentivising successful rehabilitation, not paying stipends per bed.  Is money the root of all evil, or are we simply using it to further the wrong goals?  If we take a step back, and look at the incentivication of social change--our world will soon be nothing more than Corporations and prisoners.  Congress is financially incentiviced to ignore the will of the people as a matter of *not losing their jobs*, competing for corporate lobby funds in lieu of actually catering to their constituents is a parallel problem.  It's about incentivization, and creating rules that further the social good--not just assuming that the "market" will create the optimum solution.  It's fiscal blindness, and we have problems with it everywhere.
+
+
+
 ##Dreaming time in "reverse"
 
 #Ants Marching and the Crown of Thorns
