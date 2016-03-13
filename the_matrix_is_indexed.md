@@ -8,6 +8,8 @@
 ###blood is thicker than water
 ###ready or not, here i come
 ###putting english on the ball
+###fruit of the poisonous tree
+###for god's sake
 
 ##spanglishrew
 
