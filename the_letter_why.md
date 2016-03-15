@@ -233,7 +233,12 @@ At high noon, the son is the light of the day, and James Madison's duel with Aar
 
 ###Jefferson
 Between J and the "f" that ties to the "son" through the combinatory "er" (of "Fisher King," "Anderson" and more), is the symbolic Iron Rod of Christ (thats "Fe" on the Periodic Table) being "backwards," or in the ["let my people go" mode of Aaron's *door*.](holy_water,sang_rael.html)
+
 ###EDISon
+Electronic Data Interchange; this link between a lightbulb and a modern computing acronym is clear to me... the one who calls himself the EDI Son without doubt.  Somewhere not so far in the future is a very relevent message about data storage and DNA that also ties Sherlock Holmes to the "A0RME" of SalesLogix.  In my lifetime, I am told, a storage problem of the stars was fixed; through light from the East... before you in the unclear.
+
+###Watson
+
 ###MorIson
 ###Carson (is that Johnny for Jesus?) and McCarthy
 
