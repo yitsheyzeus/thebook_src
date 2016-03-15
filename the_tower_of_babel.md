@@ -67,7 +67,7 @@ The details of her life, the content of her songs, and the links to Genesis are 
 Taylor's favorite song is (*America the Beautiful?*):
 
 ##Above the *Strawberry Fields*, Great Plains, and Wednesday
-Wednesday backwards is *Heblish* (that's Hebrew, English, and an acronym) is **hand: send EW**.  I think it's telling the hand of God to send the Earth Wisdom, or Wands.  The wands come from Great Plains, a Microsoft accounting program that allows users to write their own reports.  FRX forms, they are called; and I think Frixas is related too; these forms are part the inspiration for the idea of what the wands actually do.
+Wednesday backwards is *Heblish* (that's Hebrew, English, and an acronym) is **hand: send EW**.  I think it's telling the hand of God to send the Earth Wisdom, or Wands.  The wands come from Great Plains, a Microsoft accounting program that allows users to write their own reports.  FRX forms, they are called; and I think Frixas is related too; these forms are part the inspiration for the idea of what the wands actually do.  Just like the "AH" at the end of Adamah and Allah, it ends with an acronym that must be decrypted by me; though as we see in the All of Allah, he's left plenty of hints both for me, and to make sure it's "a we."
 
 ##*A million miles fall from grace, thank God I ((found)) ~~the~~ "Ground"* -Live{#GROUND}{#ADAMAH}{#LIVE}
 
