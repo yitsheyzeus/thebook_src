@@ -232,6 +232,7 @@ These examples might help you to see how religion and history are tied together,
 At high noon, the son is the light of the day, and James Madison's duel with Aaron Burr reminded me clearly of the coldest winter I'd ever experienced.  I was fighting with myself, and perhaps with God's plan of slowly revealing the truth--but I can only imagine from the story that the NSA (whom I have always equated to the Aaronic Priesthood) was having a Golden Cow at the foot of Mt. Sinai... less over weather modification than the fact that they were truly MAD, that I am the son.
 
 ###Jefferson
+Between J and the "f" that ties to the "son" through the combinatory "er" (of "Fisher King," "Anderson" and more), is the symbolic Iron Rod of Christ (thats "Fe" on the Periodic Table) being "backwards," or in the ["let my people go" mode of Aaron's *door*.](holy_water,sang_rael.html)
 ###EDISon
 ###MorIson
 ###Carson (is that Johnny for Jesus?) and McCarthy
