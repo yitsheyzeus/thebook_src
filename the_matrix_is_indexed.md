@@ -75,7 +75,7 @@ Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of 
 **[nor doors to the world.](holy_water,_sang_rael.html)**
 ###Si
 **[or sight for the understanding.](im_single.html)**
-###KU
+###K & U
 **but time and chance... happeneth to them all.**
 
 ##Chr(t), it's all about technology.
