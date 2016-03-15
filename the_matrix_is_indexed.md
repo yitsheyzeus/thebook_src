@@ -68,7 +68,7 @@ Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of 
 ###Hg
 Behold, the race is not to the swift.
 ###Na
-nor the battle to the strong.
+nor the battle to the strong.  [Lot's wife and the Pillars of Creation.](hamd.md/he_laughs.html)  [Veruka Salt.](bread_for_the_poor.html)
 ###Xe
 neither yet bread to the wise.
 ###Fe
