@@ -73,7 +73,7 @@ Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of 
 ###KU
 
 ##Chr(t), it's all about technology.
-Between the [Lisp of Moses,](the_encl.html) the red eyes of Revelation, and the sound of rushing waters... everywhere I look I see euphemisms to modern day computing hidden in ancient scripture.  In the [function's CHAR of Eucharist, CHR of Christ,](the_letter_why.html) and even in the Hardening of the Heart of Pharaoh, it's clear to me "why" the Hebrew pronunciation of Isaac is about "hacking."  [YitsHa'ck... and Clark Kent no more.](the_letter_why.html)
+Between the [Lisp of Moses,](the_encl.html) the red eyes of Revelation, and the sound of rushing waters... everywhere I look I see euphemisms to modern day computing hidden in ancient scripture.  In the [function's CHAR of Eucharist, CHR of Christ,](the_letter_why.html) and even in the [Hardening of the Heart of Pharaoh](expect_the_unexpected.html), it's clear to me "why" the Hebrew pronunciation of Isaac is about "hacking."  [YitsHa'ck... and Clark Kent no more.](the_letter_why.html)
 
 a tablet smashed, a secret no more
 wandering around in the dimension: 4
