@@ -66,17 +66,17 @@ Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of 
 
 ##It's elementary, my dear What-son?
 ###Hg
-Behold, the race is not to the swift.
+**Behold, the race is not to the swift.** [The Burning Bush.](behold,_the_burning_bush.html) [The Lam~~b~~ of God.](the_lamb_of_god.html)
 ###Na
-nor the battle to the strong.  [Lot's wife and the Pillars of Creation.](hamd.md/he_laughs.html)  [Veruka Salt.](bread_for_the_poor.html)
+**nor the battle to the strong.**  [Lot's wife and the Pillars of Creation.](hamd.md/he_laughs.html)  [Veruka Salt.](bread_for_the_poor.html)
 ###Xe
-neither yet bread to the wise.
+**neither yet [bread to the wise.](bread_for_the_poor.html)** [light in Exodus.](chapter1.html)
 ###Fe
-nor doors to the world.
+**[nor doors to the world.](holy_water,_sang_rael.html)**
 ###Si
-or sight for the understanding.
+**[or sight for the understanding.](im_single.html)**
 ###KU
-but time and chance... happeneth to them all.
+**but time and chance... happeneth to them all.**
 
 ##Chr(t), it's all about technology.
 Between the [Lisp of Moses,](the_encl.html) the red eyes of Revelation, and the sound of rushing waters... everywhere I look I see euphemisms to modern day computing hidden in ancient scripture.  In the [function's CHAR of Eucharist, CHR of Christ,](the_letter_why.html) and even in the [Hardening of the Heart of Pharaoh](expect_the_unexpected.html), it's clear to me "why" the Hebrew pronunciation of Isaac is about "hacking."  [YitsHa'ck... and Clark Kent no more.](the_letter_why.html)
