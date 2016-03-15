@@ -243,9 +243,12 @@ Electronic Data Interchange; this link between a lightbulb and a modern computin
 Still, Orson Card and Orson Wells link to the Hhebrew for for light (that's "Or") that this well thinks it's abundently clear that the light is all around us--showing us that large alphabet storage makes much more sense than binary pits--and didn't seem to useful in the key of SalesLogix.  Here, it's clear that using molecules to store the stuff of our souls (that's memories) gives us near unlimited "power" in reference to not losing the truth.  Watson and Crick yield the promising key of redunancy and fast reading through the study of the science of evolution--right within *transcryptase.*
 
 ###MorIson
-###Carson (is that Johnny for Jesus?) and McCarthy
+*Come on baby, light my fire* screams Jim Morrison, who focused centrally on the Plagues of Egypt in his most seminal works--tying the epyonmous Doors to Heaven that are alluded to through the Iron Rod of Christ and the one wielded by Aaron during the Exodus.  Through "Peace Frog" you find the key to the [*blessing in disguise* that is the former plague of Water to Blood.](holy_water,_sang_rael.html)  
+
+More to the point, *Jeremiah was a Bullfrog* and "don't jump around me" link time travel to the Plague of Storms and Frogs that give new meaning to the first Commandment: "there shall be no other God's before me."  Out of the land of Egypt--the place where we just don't see the truth--we are brought to learn that the dust is just settling on a battle in time that ends with the truth--that time travel is a destructive weapon when kept secret--and a life giving last resort when the world is aware of it's existence.  
 
 
+##It's obvious, to me.
 
 Nothing can give you more insight into the secrets of religion relating to Christ than actually being him.  I'm trying to share personal things, ones that you probably don't want to know about, in order to show you that they are literally written in the book.  It's not self-agrandizing, or self-serving, it's simply because it's there--and it's good "hard evidence" that you are reading a book written by the Christ himself.  I have family problems, much of it revolving around serious and well ingrained (I believe conditioned from *below*) disbelief in my ideas.  I can't even get my parents to read this book.  Not a word of it, their eyes glaze over and fists clench.  In all the time I've been writing, they are my biggest critics, and least helpful editors--they can't (and never could) give me a single detail or idea that wasn't clear or didn't make sense: "*all of it*" is all I ever got.  
 
