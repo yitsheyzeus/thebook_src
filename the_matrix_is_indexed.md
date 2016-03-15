@@ -57,7 +57,7 @@ Kentucky, Yitshack, Calvin Klein (in Back to the Future) and Clark Kent (in Supe
 Israel, Elisha and Jesus, Ishmael, Ishtar, Isaac, Isa, Islam
 
 ###am
-America, Amerigo, Amish, Amon-Ra, I AM, and Amoz
+The "I AM" founds America in Exodus... about *freedom* granted through the "Amerigo" of Adam having to leave Eden.  This time, in this book... Amish, Amon-Ra, and Amoz show us how Holy the two letters "am" are to the Wizard of Oz living on a television show in Heaven... while he writes a book "ishing" the words of God out of the sounds of music and scripture.
 
 ###er
 
