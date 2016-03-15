@@ -11,6 +11,8 @@ Is sheer "will why I won the Ka," or is it because the message is so cleverly wo
 
 One (Heaven) if by "El, and..." two if by the Holy Sea; there might be even more if everyone could see how much work has gone into delivering this message in a way that showed us clearly that it was all for thee.  
 
+###Neither yet "bread for the wise," Ecclesiastes 9:11 says to our we,  yet I'm sure that's whats coming from me.  Light, we are fed, to ensure that hunger gets destroyed by the sea.
+
 
 ##Green Eggs and Ham, Sam I AM.
 It wasn't until late 2015 when I made the connection between Dr. Seuss, the angel of death, and the food I was being offered in the Broward County Jail.  Nearly ever day, some disgusting processed ham and ancient eggs reminded me that Sam must be the "I AM."  It was here that the Grey Light of the Apocalypse flew forth from my fingers, as I desperately tried to share the knowledge that I'd been given with the world, from behind a locked jail cell.  
