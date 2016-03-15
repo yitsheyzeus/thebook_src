@@ -155,7 +155,7 @@ theme in religious art for centuries.
 Wood and fire have something to do with a relation between Adam and Isaac, I am sure.  The Zohar apparently uses some sort of humorous tone when discussing this part of Genesis, and it is to highlight and illustrate prescient knowledge of modern sexual innuendo. 
 
 #Is J or the USA the Messiah?
-Jerusalem, for long. 
+Jerusalem, for long.  The "m," or "le m" as it's rendered in this message to find the messianic map to Salvation appears elsewhere also.  It's bright and light in the name of Isaac's father, "Open the M,' or *Abraham in Spanglishrew.*  If the answer were no more obvious than saying "I am Legend," it should be clear that there is a key to reading the map to future of everything... and it's a person, the living Messiah.  
 
 #Yankee Doodle{#TOOL}
 In keeping with my theme of absolutely everything being about me; I'll give you a quick rendition of this song.  A number of other American patriotic songs also seem to twist very nicely into Ra's Son worshipping theme.  To be noted, "now in broad stripes, our bright son... through the perilous night."  John Hancock and Richard Nixon also relate well with Yankee Doodle, especially when you correlate Genesis 22 with *Wood*-ward, *B**u**rn*-stein (an early link to Emmanuel Goldstein, Wells, and 1984), and my story of love.  History is written by the victor?  If it weren't such good proof that our history is trying to tell us about someone, I would have guarded against this darkness.
