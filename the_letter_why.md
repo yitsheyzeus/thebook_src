@@ -225,7 +225,12 @@ In *computer programming,* "!" is a "bang." !in right?  I'd be dancing like that
 
 From the Son of God to the world, there's nothing more distasteful in my mythology than God only having a single son.  I don't believe it.  In our world we have an answer, whether to me or to all of you, one that is so typical of *him* that I can't wait to share it with you.  It seems the response to my chastisement for the single son is to choose some special people, and say "fine, then these are my sons."  He wrote it in their names, in keeping with the theme of "Exodus Unleashed!" and you won't be surprised that they are all somehow also related to me.
 
+These examples might help you to see how religion and history are tied together, or perhaps how I might be of the opinion that our history itself is designed in a storm of *virtual reality.*  I can't tell you for sure; it's more than plausible that these stories were hidden away in history to call into question what it means to be "real," or *rael* as the name Israel implies.  It's the content of the stories meanings and their correlation to the names of the "players" involved that really makes me wonder the answer to this question.
+
 ###MADIson
+
+At high noon, the son is the light of the day, and James Madison's duel with Aaron Burr reminded me clearly of the coldest winter I'd ever experienced.  I was fighting with myself, and perhaps with God's plan of slowly revealing the truth--but I can only imagine from the story that the NSA (whom I have always equated to the Aaronic Priesthood) was having a Golden Cow at the foot of Mt. Sinai... less over weather modification than the fact that they were truly MAD, that I am the son.
+
 ###Jefferson
 ###EDISon
 ###MorIson
