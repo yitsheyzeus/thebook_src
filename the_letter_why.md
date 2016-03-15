@@ -247,6 +247,8 @@ Still, Orson Card and Orson Wells link to the Hhebrew for for light (that's "Or"
 
 More to the point, *Jeremiah was a Bullfrog* and "don't jump around me" link time travel to the Plague of Storms and Frogs that give new meaning to the first Commandment: "there shall be no other God's before me."  Out of the land of Egypt--the place where we just don't see the truth--we are brought to learn that the dust is just settling on a battle in time that ends with the truth--that time travel is a destructive weapon when kept secret--and a life giving last resort when the world is aware of it's existence.  
 
+Noah, Moses, and Jesus are tied together by the *wandering of the people in the 4-D*, trying to figure out what kind of relevence the number 40 has to travel outside of time.  It's this kind of message, woven from Genesis to Exodus and then into the life of Christ in Matthew and our reality that sheds real light on a message so central to survival that *all of religion* is here to ensure that we are not left in the proverbial darkness.
+
 
 ##It's obvious, to me.
 
