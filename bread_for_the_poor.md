@@ -7,6 +7,9 @@ Johnny Appleseed left the light everywhere, the idea of an Apple being linked to
 
 You see, it's hard to get people's opinions on things when everything you say and do is hidden.  In this place, where the battle of Exodus is about the light of the son being seen--to end the Plague of Darkness... it's ever so more imperative to get the word out when it's in everything around us--and still unseen.
 
+Is sheer "will why I won the Ka," or is it because the message is so cleverly woven into everything?  I can't tell you for sure if the world will ever get "ver" (to see) the "ka" but the link between the Body of Christ and the ancient myth of Horus uniting two lands... brings us to wonder if the *Red Coats are Coming...*
+
+One (Heaven) if by "El, and..." two if by the Holy Sea; there might be even more if everyone could see how much work has gone into delivering this message in a way that showed us clearly that it was all for thee.  
 
 
 ##Green Eggs and Ham, Sam I AM.
