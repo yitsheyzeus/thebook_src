@@ -57,7 +57,7 @@ Kentucky, Yitshack, Calvin Klein (in Back to the Future) and Clark Kent (in Supe
 Israel, Elisha and Jesus, Ishmael, Ishtar, Isaac, Isa, Islam
 
 ###am
-America, Amerigo, Amish, Amon-Ra, I AM
+America, Amerigo, Amish, Amon-Ra, I AM, and Amoz
 
 ###er
 
