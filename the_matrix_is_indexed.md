@@ -66,11 +66,17 @@ Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of 
 
 ##It's elementary, my dear What-son?
 ###Hg
+Behold, the race is not to the swift.
 ###Na
+nor the battle to the strong.
 ###Xe
+neither yet bread to the wise.
 ###Fe
+nor doors to the world.
 ###Si
+or sight for the understanding.
 ###KU
+but time and chance... happeneth to them all.
 
 ##Chr(t), it's all about technology.
 Between the [Lisp of Moses,](the_encl.html) the red eyes of Revelation, and the sound of rushing waters... everywhere I look I see euphemisms to modern day computing hidden in ancient scripture.  In the [function's CHAR of Eucharist, CHR of Christ,](the_letter_why.html) and even in the [Hardening of the Heart of Pharaoh](expect_the_unexpected.html), it's clear to me "why" the Hebrew pronunciation of Isaac is about "hacking."  [YitsHa'ck... and Clark Kent no more.](the_letter_why.html)
