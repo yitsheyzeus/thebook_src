@@ -238,6 +238,9 @@ Between J and the "f" that ties to the "son" through the combinatory "er" (of "F
 Electronic Data Interchange; this link between a lightbulb and a modern computing acronym is clear to me... the one who calls himself the EDI Son without doubt.  Somewhere not so far in the future is a very relevent message about data storage and DNA that also ties Sherlock Holmes to the "A0RME" of SalesLogix.  In my lifetime, I am told, a storage problem of the stars was fixed; through light from the East... before you in the unclear.
 
 ###Watson
+[*"It's elementary, my dear What-son's,"*](behold,_the_burning_bush.html) and the key to understanding why DNA and "What-son?" are tied together lies in a mythological story about the Ancients having access to a technological weapon that was keyed to the DNA of the son.  Of course, I'd never have created a DNA key, not when the soul of God was an open window to me.
+
+Still, Orson Card and Orson Wells link to the Hhebrew for for light (that's "Or") that this well thinks it's abundently clear that the light is all around us--showing us that large alphabet storage makes much more sense than binary pits--and didn't seem to useful in the key of SalesLogix.  Here, it's clear that using molecules to store the stuff of our souls (that's memories) gives us near unlimited "power" in reference to not losing the truth.  Watson and Crick yield the promising key of redunancy and fast reading through the study of the science of evolution--right within *transcryptase.*
 
 ###MorIson
 ###Carson (is that Johnny for Jesus?) and McCarthy
