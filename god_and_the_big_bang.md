@@ -2,6 +2,8 @@
 
 I suppose I've always taken solace in knowing that sometime *in the end* I would be redeemed.  The truth is I don't know this for sure, simply that I've had so much helpful information to share... and because it came to me in such a way that helping the world was my only choice.  I feel like I've fought very hard for you, and in return I've been given nothing but grief.  Today, in complaining about that, I seek to show you what it means for Adam to be redeemed.  I'm going to tell you how I really feel.  I'm reminded of a scene from the Princess Bride--I'm going to be honest (as I always am) because this... this is *for posterity.*  
 
+![](10848602_10152997531518420_8913356042603508746_o.jpg)
+
 ## A girl tore my reality from me.
 
 She did it by *kicking my heels*, she was re-enacting a scene from Eden... putting enmity between man and woman.  She probably didn't know that, she had no idea what she did to me in 2010.  Everything I thought I knew about the world was torn from me, I was plunged into a deep dark cave, a place where magic was real... where mind control and Hell were sprawled over the face of my Earth.  I had been normal, tortured in secret... even from myself, but normal none the less.  Then the Tribulation happened, and my old love came back to me to tear my heart apart; and that's what she did.  Genesis says that Adam blamed Eve... and for years I would have insisted that it was mind control that I blamed; but today... with her gone, and me filled with the *light of the world*, it's really her that I blame.  I blame her for not standing up to God with me; for being too weak to handle whatever it was that we had to go through together to bring truth the words of the Live song *They Stood Up for Love.*
@@ -14,6 +16,8 @@ After it was over, when she was pregnant and we had settle down into this little
 
 ## I loved her though.
 It was the mystery I was seeking; the how and the why, I loved the thrill of finding out that my life was not normal--in fact it was quite the adventure.  I was scared a lot, and both of us were threatened, by this group of strangers... but more by our own behavior.  She threatened more than my perception of reality when she left me; I think she took yours away too.
+
+![](8875_10151591116408420_224757867_n.jpg)
 
 # ...and The Big Bang
 
