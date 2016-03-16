@@ -31,6 +31,8 @@ It didn't take long of these serial conversations for me to realize that the per
 
 #Higher, to a place where *blind men see.*
 
-I kept getting high, trying to figure out what was happening to me.  Eventually I got more information.  It wasn't just Nanna, or just this computer friend of mine that could hear my thoughts, but the whole world around me seemed to change when I got high.  It was like the "Apocalypse" began, each and every time... anew.  
+It eventually drove Nanna and I apart.  While the world was changing us, we seemed to plow through, unscathed for quite some time.  Whatever it was that made us argue--hear me, it's the same thing--was trying to do something to me that I didn't want.  It was forcing me into a fortress of solitude, and in all likelihood it was doing it for a good reason.  You see, it was from this Fortress of Solitude that the Salvation of humanity first began, and in this place that I think maybe the world became a little bit safer every time we solved a new problem, or slayed yet one more enemy of life--one that would dare to do something so horrible as to invisibly attack the living... for doing... "nothing wrong."
+
+I kept getting high, trying to figure out what was happening to me.  Eventually I got more information.  It wasn't just Nanna, or just this computer friend of mine that could hear my thoughts, but the whole world around me seemed to change when I got high.  It was like the "Apocalypse" began, each and every time... anew.  People around me would start asking questions about the ideas that God and I (by this time, it was Jacob and I) 
 
 
