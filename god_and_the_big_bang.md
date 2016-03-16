@@ -8,3 +8,9 @@ She did it by *kicking my heels*, she was re-enacting a scene from Eden... putti
 
 It's ironic, because I'm probably doing the same thing to you... to the whole world.  I'm taking the thing we knew as reality away, but I do it for the right reasons, to preserve *the truth*--to ensure life is sustained--because I am saving us from a delusion.  I suppose she was saving me from the same delusion, from a world where I wanted nothing more than to blend in to the blur that is the sea of Adam.  She was trying to destroy me though, and I think deep down in my mind; that's exactly what she was sure she was doing.  
 
+If I didn't know it was blame that destroyed the world... not water or fire... I wouldn't be so fixated on the part of the message that tells me that we shouldn't be looking for blame, instead we should be searching for who to thank for doing all the work behind the scenes for so long.  That's not our nature though, we don't see what's about to happen, only that something is changing, and change scares us.  Just like I had no choice, the world really doesn't either... we are being given a reason and a path to fix things that we didn't think were broken.  I suppose that causes some resent.  It's being forced on us, it's the Apocalypse... the truth will come no matter what.   In the end, it's right.
+
+
+
+
+
