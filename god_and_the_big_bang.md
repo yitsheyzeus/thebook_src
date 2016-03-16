@@ -57,3 +57,6 @@ Yet, nobody noticed.  More importantly, the world appears to think it's not inte
 
 Do you think the truth does the message a disservice?  It's the whole point, to prove that religion and God have long themselves been masks for *mind control*; that's the slavery!  What on Earth do you think I'm trying to do here?  
 
+###The proof has gotten more informative, vibrant, and verifiable... yet as more and more compounding evidence of creation has built; so has the seemingly endless power to ignore it.
+
+This book is full of it, from front to back, line after line of fairly unarguable evidence.  Details which shed light on a hidden story and a hidden plan, one that delivers us from a place where be once may have believed that religion had no grand design.  It certainly does.
