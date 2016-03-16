@@ -12,6 +12,7 @@
 * [The Second Breakfast](bread_for_the_poor.md)
 * [I'm Single](im_single.md)
 * [The Light of Heaven](the_light_of_heaven.md)
+* God and the Big Bang
 * [My Dying Breath](my_dying_breath.md)
 * [He Laughs, again](hamd.md/he_laughs.md)
 * His Heart and SOL
@@ -20,5 +21,4 @@
 * [The Encl](the_encl.md)
 * [Outside of Heaven](outside_of_heaven.md)
 * [The Matrix is Indexed](the_matrix_is_indexed.md)
-* God and the Big Bang
 
