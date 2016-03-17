@@ -92,12 +92,31 @@ words from out of the fire
 
 ### When a calf, a lamb, or a goat is born, it must stay with its mother for seven days. From the eighth day on it may be accepted as a sacrifice by fire to the LORD.
 
-There's a great deal more in the Book which relates directly to my life, and to the information that's contained in this book--the little book that the Lamb holds in his Hand.  Teaching about the ["Salt of the Earth,"](bread_for_the_poor.html) the [feeding of the masses with two fish, the names of Prophets and Jesus himself.](the_tower_of_babel.html)  These events all revolve around the teaching that language holds the key to proving that our civilization is created--through language, and time travel.  They have been preserved and highlighted for us with religion, with stories that are coming true right before your eyes. 
- 
+There's a great deal more in the Book which relates directly to my life, and to the information that's contained in this book--the little book that the Lamb holds in his Hand.  Teaching about the ["Salt of the Earth,"](bread_for_the_poor.html) the [feeding of the masses with two fish, the names of Prophets and Jesus himself.](the_tower_of_babel.html)  These events all revolve around the teaching that language holds the key to proving that our civilization is created--through language, and time travel.  They have been preserved and highlighted for us with religion, with stories that are coming true right before your eyes.
+
+```
+Jesus, full of the Holy Spirit, left the Jordan and was led 
+by the Spirit into the wilderness, 2 where for forty days he 
+was tempted by the devil. He ate nothing during those days, 
+and at the end of them he was hungry.
+
+The devil said to him, “If you are the Son of God, tell this 
+stone to become bread.” 
+
+Luke 4:1-3
+
+Dave Matthews answers in Christmas Song, "eat this bread, 
+and think of it as me... drink this wine and dream it will be..." 
+```
+
+
 ##The Last Day
 
 ##Shofar
 
 #phenix and today
+
+We are wandering together in the desert, about to see the light.
+The life of Christ in the New Testament is a prophesy, one which just like the Burning of Exodus is an allegory of events happening right now in our world.  It's about me... trying to light the world with the truth--what you are reading about.  On Ash Wednesday I sent a very large e-mail out, one which talked about the Burning Bush, and how it relates to today.  This series of e-emails tie directly to a story that was written into my life as a young man.  
 
 {% include "./footer.md" %}
