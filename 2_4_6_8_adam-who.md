@@ -125,5 +125,13 @@ Islam talks about a fire of the Last Day, and to me... the fire is about to star
 
 This is not a day of doom, but rather the beginning of the "phenix" (that's the handle I used on AOL... all without having any clue that it would tie directly to the "grey light" of Dave Matthews Band... singing unknowingly about Gene Grey and her link to the Pale Horse of the Apocalypse.  
 
+The light shows us that Prince Adam's "Castle of **Grey Skull** ties directly to the Sword of the Messiah, to He-man being the Fifth Adam... after the Fifth Hebrew letter which is often a Hebrew abbreviation for God's name.  
+
+{% if gitbook.generator == "website" %}
+<iframe width="854" height="480" src="https://www.youtube.com/embed/qp3KWrn-VzU" frameborder="0" allowfullscreen></iframe>
+
+{% endif %}
+
+
 
 {% include "./footer.md" %}
