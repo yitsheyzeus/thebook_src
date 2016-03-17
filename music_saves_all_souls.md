@@ -4,6 +4,8 @@ Music talks to me, it's God speaking.  He tells me stories, makes promises, and 
 
 Like the secret language, seeing the influence of an outside force in popular culture begins to offer proof of the existence of God.  This is about faith, and ending the need for it... so you too, like Moses, can be sure... You've heard his voice, and seen the fire.
 
+<iframe width="853" height="480" src="//sendvid.com/embed/v7w7lt2j" frameborder="0" allowfullscreen></iframe>
+
 I know these lyrics are inspired, they are about me; and neither you nor the author knew that until I came.  This is how he proves he is there, by weaving a story between songs... linking them to movies and to people.  To me, to President's, to you.  Seeing the hand of God is simply a matter of perspective, can you believe it's real? 
 
 Can you believe that the proof has been in front of us the whole time, just waiting to be unlocked, like some box in Greece.  Pandora; Prometheus and/or "a," the A of Adam ties us ... exactly as I am explaining ... through a Matrix of light (see it's a Cypher in words, and a Matrix all around us) from Pandora to Mr. Ander*son*; the Messiah of Or.  Or is the Hebrew word for light.  It's in our language, and our movies.  And the music...
@@ -48,6 +50,7 @@ On the note of cat imagery, Cat Stevens lights up the horizon with this song "li
 The night is when we all see, when we don't see the "ah," it's been our world up until now, when it is being pointed out to the world that there is an "ah" swirling around Adam, around Christ.  We are in Eden, God is searching for me... in this case God is humanity; well paralleled in Matthew 2:2.  "*Where is the one who was born the King of the Jews*"?
 
 *Through the night, with the light from above*, the Egyptian Plague of Darkness is all around us.  It is overtly keeping us from seeing this message, by using disbelief, and active measures like a censorwall.  Censorship in America; and nobody knows... this is the Darkness.  It is the Wall of Jericho, and it is about to fall.  Like Berlin before it, this wall is being torn down--in this case by the torches that are an e-mail campaign, social media, and the writing you are reading which points out clearly how to see in the dark.  Once enough do, we have the base we will need to stop this from ever happening again.   And the knowledge, this is God's plan; to highlight serious social problems, like a palpable lack of freedom of speech and communication, so that we can stop this type of hidden slavery.  
+
 ###Day
 The names "Adam and Eve" have a meaning related to this cycle.  After Dark it is A.M.--ADA.M. is the bright morning star, rising in the night to end the dark.  Eve-ning fell first, like in Judaism where the day begins at sundown. Looking for *proof through the night that our flag ...* America is the Promised Land.  The Biblical imagery in our songs, the freedom that is *God given*, all of these things congeal to light the day.  *What so proudly we hailed at the twilight's last gleaming*... why that's me, and religion, the last gleaming was the end of the "last time around," right before that civilization went back in time to change their past.  Now, we are here.
 
