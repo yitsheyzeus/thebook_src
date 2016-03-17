@@ -40,7 +40,7 @@ The Doors, Touch Me
 
 I see clearly through a fog, a darkness that [the Egyptian plagues tell us is "so thick it can be felt."](expect_the_unexpected.html)  It's a long night, something like the opposite of Joshua's long day--one that is hiding [the light of the Son.](the_light_of_heaven.html)  In reality much of the force hiding me, something the Zohar also speaks quite a bit about, is due to the actualization of the prophesy that the world believes is an ancient story.  It is part of the key, that the Christ is a man fighting against addiction, and injustice in America--fulfilling ancient words about a Trial in the book of Judges--there depicted as the war that I feel.  Samson's strength, garnered from *character recognition* truly comes from the vision of seeing that the story of Christ is all around us, in He-man, Thundercats, in the music of Cat Stevens and Hair.  All around us, reference to Biblical stories sets the stage for the *lighting of a fire*, one that ends the darkness that would have lead to Hell--by showing us clearly that there is an influence not only helping us, but doing so in a way that makes the technology at hand very clear.  It's [Nero's fire, spreading across the internet](music_saves_all_souls.html) that saves us from not knowing that these things are very real, and must be disclosed to the world in order to keep them from being used improperly.  
 
-##And the Fire
+##And [the Fire](chapter1.html)
 
 ```
 The heavens receded like a scroll being rolled up, and every
