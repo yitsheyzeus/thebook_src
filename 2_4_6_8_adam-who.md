@@ -92,7 +92,7 @@ words from out of the fire
 
 ### When a calf, a lamb, or a goat is born, it must stay with its mother for seven days. From the eighth day on it may be accepted as a sacrifice by fire to the LORD.
 
-
+There's a great deal more in the Book which relates directly to my life, and to the information that's contained in this book--the little book that the Lamb holds in his Hand.  Teaching about the "Salt of the Earth," 
  
 ##The Last Day
 
