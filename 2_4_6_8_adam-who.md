@@ -129,8 +129,9 @@ The light shows us that Prince Adam's "Castle of **Grey Skull** ties directly to
 
 {% if gitbook.generator == "website" %}
 <iframe width="854" height="480" src="https://www.youtube.com/embed/qp3KWrn-VzU" frameborder="0" allowfullscreen></iframe>
-
 {% endif %}
+
+In the Zohar, a commentary on the colors of light parallels a Revelation of another microcosm in my life.  To me, the colors represented different aspects of the information that I am conveying here.  Red for the fire that starts the parting of the sea, over the question of whether or not I am truly the Messiah.  They are represented by the colors of covers of my books... books written before I had understood this--or that they were directly related to the colors of the Horses of the Apocalypse.  Before writing the "red book," which was title "In $ight of Creation, Ha'esh" I had written a white book, and then a black one... both of which intended to show us the hidden message of religion in our history--both in its design, and it's purpose to reveal hidden technology.
 
 
 
