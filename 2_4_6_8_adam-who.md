@@ -27,7 +27,6 @@ In reality, this far-gone time is a hidden reference to our world--seen through 
 {% endif %}
 
 
-
 ##The *You and I* *verse*, my Universe
 
 ```
