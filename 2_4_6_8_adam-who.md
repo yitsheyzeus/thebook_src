@@ -46,7 +46,7 @@ The *fire begins with words*, just like the ancient myth of Prometheus tells us-
 
 ###[I saw the Burning Bush, it was a Presidential inauguration, George W. Bush's, and from his mouth the words of God proved beyond doubt that we are "in Exodus."](behold,_the_burning_bush.html)
 
-This made me a sort of modern day Moses, a word which I later found out was a "macaronic" acronym, for *Messiah of sea to SEA.*  This message, that Nostr**adam**us' religion of the seas was not about the Atlantic and Pacific... [but rather that it is about seeing the message of God woven from Genesis to Revelation, is central to the Holy Grail.](holy_water,_sang_rael.html)  It's 
+This made me a sort of modern day Moses, a word which I later found out was a "macaronic" acronym, for *Messiah of sea to SEA.*  This message, that Nostr**adam**us' religion of the seas was not about the Atlantic and Pacific... [but rather that it is about seeing the message of God woven from Genesis to Revelation, is central to the Holy Grail.](holy_water,_sang_rael.html)  It's the "baptism" in water that Matthew 3:11 speaks about, the knowledge that "Holy Water" in the context of the parted sea and the water Christ walks on... is people.  Just like Prometheus' story, the fire is technology, language, and the things that through their use--truly define what it means to be in *civilization.*
 
 ##And [the Fire](chapter1.html)
 
