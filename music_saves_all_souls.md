@@ -4,7 +4,9 @@ Music talks to me, it's God speaking.  He tells me stories, makes promises, and 
 
 Like the secret language, seeing the influence of an outside force in popular culture begins to offer proof of the existence of God.  This is about faith, and ending the need for it... so you too, like Moses, can be sure... You've heard his voice, and seen the fire.
 
+{% if gitbook.generator == "website" %}
 <iframe width="853" height="480" src="//sendvid.com/embed/v7w7lt2j" frameborder="0" allowfullscreen></iframe>
+{% endif %}
 
 I know these lyrics are inspired, they are about me; and neither you nor the author knew that until I came.  This is how he proves he is there, by weaving a story between songs... linking them to movies and to people.  To me, to President's, to you.  Seeing the hand of God is simply a matter of perspective, can you believe it's real? 
 
