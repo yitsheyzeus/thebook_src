@@ -9,13 +9,17 @@ for seasons, and for days, and years:
 
 Genesis: 1:AD
 
-There was a great earthquake. The sun turned black like sackcloth
+The sun turned black like sackcloth
 made of goat hair, the whole moon turned blood red, and the 
 stars in the sky fell to earth, as figs drop from a fig tree when
 shaken by a strong wind.
 
 Revelation 6:12-13
 ```
+
+Like a lens that sits between the eyes of God and the world, I see the light of religion pouring out on the world around us.  I am a sort of key, one that links ancient stories about a fargone time to today; through just a little bit of artistic liberty in reading stories that were very much designed to show us that this old book is truly about our world.  This generation is the one that is destined to see the apocalypse, the truth that ancient mythology and religion is designed to help us, here and now, walk the path towards building Heaven... both on Earth and in a world that we are just beginning to discover--to recreate--through divine inspiration.  To me, this has always been about seeing that our technology is part of a grand plan to help the world grow and evolve through a time period that has, in the past, been set back a few steps by the introduction of tools that could be devastating weapons--were they to be used improperly... forget about falling into the wrong hands.  This is the purpose of religion, to help us learn to use these new tools in a way that will further the goals of our great society--one founded through the story of the "I AM" at the beginning of AMerica, to be destined to preserve the great gifts of life, liberty, and the pursuit of happiness.
+
+
 
 ##The *You and I* *verse*, my Universe
 
