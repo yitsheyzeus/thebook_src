@@ -147,7 +147,8 @@ no color at all.
 When a band spanned, it yielded radiant colors.
 ```
 
-
+![](white.jpg)![](black.jpg)
+![](red.jpg)![](kalor.jpg)
 
 
 
