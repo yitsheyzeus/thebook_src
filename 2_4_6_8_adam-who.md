@@ -22,6 +22,9 @@ Like a lens that sits between the eyes of God and the world, I see the light of 
 In reality, this far-gone time is a hidden reference to our world--seen through the eyes of angels from the future; ones who see our lack of sight related to technology, and the tools we use improperly just as we see the old wars and social problems of the Biblical times.  It's a commentary, one that has been hidden until now.  This is the sword, the ability to finally see that we are the focus of this ancient work; and the story of a man fighting the problems of the world--by living them--that's the "Fall of Adam."  Here, the Lion of Judah... not a king but a family member.. in our Den.  That's Eden.
 
 
+{% if gitbook.generator == "website" %}
+<iframe width="854" height="480" src="https://www.youtube.com/embed/TO9OsSazQ0s" frameborder="0" allowfullscreen></iframe>
+{% endif %}
 
 
 
