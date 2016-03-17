@@ -110,13 +110,20 @@ and think of it as me... drink this wine and dream it will be..."
 ```
 
 
-##The Last Day
-
-##Shofar
-
-#phenix and today
+#phenix and the Last Day
 
 We are wandering together in the desert, about to see the light.
-The life of Christ in the New Testament is a prophesy, one which just like the Burning of Exodus is an allegory of events happening right now in our world.  It's about me... trying to light the world with the truth--what you are reading about.  On Ash Wednesday I sent a very large e-mail out, one which talked about the Burning Bush, and how it relates to today.  This series of e-emails tie directly to a story that was written into my life as a young man.  
+The life of Christ in the New Testament is a prophesy, one which just like the Burning of Exodus is an allegory of events happening right now in our world.  It's about me... trying to light the world with the truth--what you are reading about.  On Ash Wednesday I sent a very large e-mail out, one which talked about the Burning Bush, and how it relates to today.  This series of e-emails tie directly to a story that was written into my life as a young man.  It's a microcosm, one of many, that sheds light on why it is that Christ wandered in the desert for 40 days, instead of the 40 years of Moses and Noah.  Microcosms of futures-past have been written into our world, and directly into me.
+
+When I was in my early teens I began writing a mass-mailing program on AOL.  It was themed in the style of AOHell, and was designed to share pirated software in an underground circle.  It would take decades for the microcosm to make sense to me, to see that the e-mails that my program sent out--it was called "Doomsday"-- were a direct correlation to this event--to the advertising of the information in this book.
+
+Islam talks about a fire of the Last Day, and to me... the fire is about to start.  It is not the last day of creation though, simply the last day without the light of the Son.  The end of pre-destination, caused by not knowing about time travel--and it's direct relationship to the creation of our civilization.  God walks us out of the desert of unknowing in order to keep this technology from changing our timeline without our knowledge or consent... to stop the creation of an "alternate 1955" as *Back to the Future* explains the Holy Light to the world.
+
+{% if gitbook.generator == "website" %}
+<iframe width="854" height="480" src="https://www.youtube.com/embed/tXc4jgUJEko" frameborder="0" allowfullscreen></iframe>
+{% endif %}
+
+This is not a day of doom, but rather the beginning of the "phenix" (that's the handle I used on AOL... all without having any clue that it would tie directly to the "grey light" of Dave Matthews Band... singing unknowingly about Gene Grey and her link to the Pale Horse of the Apocalypse.  
+
 
 {% include "./footer.md" %}
