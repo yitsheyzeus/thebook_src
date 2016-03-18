@@ -30,6 +30,7 @@ It is the history that breathes the true word, and it is why we are the light of
 
 ![](1014066_436918383112075_4178235461669577390_n.jpg)
 
+Some commentary, from a discussion
 
 When I call it ambiguous, I am referring specifically to "AH," which is a suffix whose linguistic meaning is something akin to "to swirl around." In the case of Adamah, which is Earth... it's a fairly easy jump to seeing how that could be "people."  It matches the reset of the sea definition, at http://sangrael.lamc.la.  The first two letters are not ambiguous, and are reinforced by Genesis 1.  It gives me comfort when I see a pattern in the very first sentence of the Bible.
 
