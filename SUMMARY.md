@@ -17,9 +17,9 @@
 * [He Laughs, again](hamd.md/he_laughs.md)
 * [His Heart and SOL](his_heart_and_sol.md)
 * [Holy Water, Sang Rael](holy_water,_sang_rael.md)
+* [Computer explain Einstein's Relative-to-me](computer.md)
 * Atlantis and The Doors
 * [The Encl](the_encl.md)
 * [Outside of Heaven](outside_of_heaven.md)
 * [The Matrix is Indexed](the_matrix_is_indexed.md)
-* [Computer explain Einstein's Relative-to-me](computer.md)
 
