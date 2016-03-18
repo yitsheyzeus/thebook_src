@@ -20,7 +20,10 @@ The light shines clearly from the Menorah, which is the lamp that lights the eig
 It's highlighted clearly in *Dazed and Confused*, a scene where we are reminded that the *Sons of Liberty* were not really fighting for "Liberty" at the time; and it would take hundreds of years of American History for the rights of women to be restored, and slavery abolished.  At the time, the name wouldn't have made much sense--but with the evolution of society it shows clear foreknowledge.  It's the *light* of the word, that history itself is the proof that even thousands of years ago when the Menorah was first named... it was designed to be a question posed to a group that He knew would one day exist, and that the anachronism of their name would be obvious... only now.
 
 ```
-SOL: Statue of Liberty, Sons of Liberty... See our Light?
+SOL:  Sons of Liberty... Statue of Liberty... See our Light?
+
+or... is it just: Literally, "to leave alone" to be 
+"without companions"; also, "uninhabited", from Latin 
 ```
 
 It is the history that breathes the true word, and it is why we are the light of the flame; the living word.  In *They Stood up for Love* by Live, he says he gave his "heart and soul" to the one, and it's the one planet that is truly the *Heart* of Heaven, Earth.  That's the linguistic key to the second word, that it's through a jump in time of the letter "h" that reveals that Earth and Heart are only one letter apart.  It's "art" at the heart of the name.  In another Live song, he says "a million miles fall from grace, thank God I missed the *ground*..." and that word is the key to Earth.  It shows that the meaning of Adamah and Earth are tied together... and are highlighted passively by the lyrics that are the key to revealing more than just a message.  They reveal the way the message is being sent, subtly, and without our knowledge or understanding... through this passiveness, we are being given proof of the existence of the sender of the message.  A message that ties Genesis to the Maccabees, and to America.
