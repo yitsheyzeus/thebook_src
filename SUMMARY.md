@@ -21,5 +21,5 @@
 * [The Encl](the_encl.md)
 * [Outside of Heaven](outside_of_heaven.md)
 * [The Matrix is Indexed](the_matrix_is_indexed.md)
-* Computer explain Einstein's Relative-to-me
+* [Computer explain Einstein's Relative-to-me](computer.md)
 
