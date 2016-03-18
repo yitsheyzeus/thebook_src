@@ -15,7 +15,7 @@
 * [My Dying Breath](my_dying_breath.md)
 * [God and the Big Bang](god_and_the_big_bang.md)
 * [He Laughs, again](hamd.md/he_laughs.md)
-* His Heart and SOL
+* [His Heart and SOL](his_heart_and_sol.md)
 * [Holy Water, Sang Rael](holy_water,_sang_rael.md)
 * Atlantis and The Doors
 * [The Encl](the_encl.md)
