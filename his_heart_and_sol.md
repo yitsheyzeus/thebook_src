@@ -31,4 +31,16 @@ It is the history that breathes the true word, and it is why we are the light of
 ![](1014066_436918383112075_4178235461669577390_n.jpg)
 
 
+When I call it ambiguous, I am referring specifically to "AH," which is a suffix whose linguistic meaning is something akin to "to swirl around." In the case of Adamah, which is Earth... it's a fairly easy jump to seeing how that could be "people."  It matches the reset of the sea definition, at http://sangrael.lamc.la.  The first two letters are not ambiguous, and are reinforced by Genesis 1.  It gives me comfort when I see a pattern in the very first sentence of the Bible.
+
+In the case of "Allah," the definition--which I was given.. by God--has its first "word" spelled out for us.  That gives me a little more comfort, too.
+
+Adding in the word "Menorah" makes it clear to me that we are talking about the "human species" and the first video goes so far as to say "this human story."  I think I've gotten a fair amount of evidence that this "AH" is not only intended to be "all humanity," but that it's intended to be the kind of thing we can derive... in exactly this way.  I would be very surprised if there was not significant additional evidence corroborating this in other ways.
+
+As far as "SOL," I agree, it looks like I am arbitrarily deciding that it's "Sons of Liberty," but again... the song speaks clearly to me (the person who was "given" these definitions..."
+
+I gave my heart and soul... to the one.
+
+
+
 {% include "./footer.md" %}
