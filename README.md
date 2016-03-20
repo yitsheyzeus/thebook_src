@@ -162,7 +162,7 @@ I imagine by the time you read this, the wall that I am speaking of has fallen..
 
 We all, every future civilization, and every conscious soul owes a great debt to a group that today I cannot even name... only to know that it is the work of the inhabitants of creation, aided by an amzing outside light.  
 
-Today, Darkness is forever destroyed.
+Today, Darkness is forever destroyed. 3/20/2016.
 
 #Your Religion
 You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and [*Nashian*](http://www.whenistheapocalypse.com/paranoia-synchronicity decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.  Some of these things appear to be in religion to make us stop and think, to urge swift reform of horrible concepts like Holy Wars against people based on esoteric beliefs.
