@@ -80,6 +80,8 @@ Without knowledge of these more advanced technologies, we are literally begging 
 
 It is the single most important disclosure of Jesus Christ, and fundamental to my life--my story--and truly to my continued existence that this technology never again be used improperly.  Nobody should ever be controlled without their knowledge or consent--sans to protect the safety of themselves... or innocents.  Nobody should ever have pain increased with this technology, and that should be obvious.  Hatred, racism, and anger too... a make absolutely no sense to artificially increase..  It must be seen as obvious that using this technology to intentionally harm is nothing short of torture, and pure evil.
 
+Allowing "mind control" to be used in order to hide the existence of "mind control" is a form of evil that masquerades as stupidity.  Don't be stupid, realize that once something like this is hidden... by the kind of entity that would choose to hide it, is the kind of thing that can never be undone, and ultimately is the destruction of civilization.
+
 
 
 
