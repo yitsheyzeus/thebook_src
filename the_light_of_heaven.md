@@ -66,6 +66,22 @@ Limited omniscience, or **lo-**Biblically is the future though, it's how to fix 
 
 ###"I know *Psi-Chi*," says Neo & ((ish)).  "Show me."
 
+#Technology, history, and "forward progress."
+
+Within the history of America, see a well highlighted pattern, one which is echoed throughout the history of the Earth... that it becomes such a central point to the Apocalypse that I think it is fair to say that knowledge of technology, and the truth of how it has been mishandled in the past being preserved is a pivotal point in the history of civilization itself.  Here, between and America and Earth, we see a clear pattern of a failure to properly adapt to new technologies.   In the end, it becomes even more clear that this lack of progress is truly due to the hiding of other technologies, to a secrecy and of altrism that saw this Earth destroyed over and over again with mind control and time travel technology from it's earliest days.
+
+It is these two technologies which are central to understanding why computing and telecommunications have been so poorly adopted in the history of America, a place that is a functional microcosm of the history of Humanity.  Through the Constitution, we see very clearly that over a period of several hundred years, amendments show a clear and positive change in the social and equality guidelines that our society evolved to adopt.  At the same time, through this same period, huge leaps were made in technology... the industrial revolution, the invention of the telephone, and the computer revolution.  Despite these things being so world changing, not a single amendment focuses on the adoption or modification of law related  to them.  Clearly, between the Pony Express and the invention of the Interet, voting technology should have not only been actively reasearched by both the government and the private sector, frequency of voting as well as the volume of legislation which was taken to popular vote should have radically increased.  Instead, we are given Die Bold as the first and hallmark solution--highlithed by religion and the name of this book--as a pathetic and stagnating attempt to do absolutely nothing to improve any aspect of voting other than tallying.  
+
+At the same time, mind control technology has proliferated in secret, and a war is being waged across the globe to ensure that we are not lost to this truth.  It too is highlighted thousands of years ago... it the Plague of the Killing of First Born--manifested here in school and military shootings which are with no doubt due in near totality to an outside influence altering the thoughts of the shooters.  
+
+Attempts to hide the existence of mind control technology are futile and destructive, they do nothing but put us into a world where that very same technology is used to hide its own exitence; and perhaps alter the veracity and usefulness of that same vote that we are so reluctant to see as a ancient tool that needs modern updating.  
+
+Without knowledge of these more advanced technologies, we are literally begging to live in a despotism of 1 for all of eternity.  Worse yet, our very beliefs, our opinions and eventually the "stuff" that makes us alive and conscious is threatened by this technology in secret.  
+
+It is the single most important disclosure of Jesus Christ, and fundamental to my life--my story--and truly to my continued existence that this technology never again be used improperly.  Nobody should ever be controlled without their knowledge or consent--sans to protect the safety of themselves... or innocents.  Nobody should ever have pain increased with this technology, and that should be obvious.  Hatred, racism, and anger too... a make absolutely no sense to artificially increase..  It must be seen as obvious that using this technology to intentionally harm is nothing short of torture, and pure evil.
+
+
+
 
 ##It's time I told you how a girl and a guy could kiss... on a night like this
 
