@@ -161,6 +161,11 @@ Often rendered with names beginning with J, Jeremiah and Job struggled against t
 
 That 'm' at the end of Jerusalem and Abraham opens to reveal an 'AC,' one that ties the end of Isa-ac to me, through the [story of Isa running](the_lamb_of_god.html)--whose prime letter 'A' denotes the beginning of *everything that ever was, and will be.*   These two letters tie too, to A.D. hidden away in the little 'n' that graces the end of Isaac Newton's original sin.  [New to N?](im_single.html)
 
+#To an Us, from A WE... so, me.
+This is the place where we find out why God exists, how Osiris came to be, and the reason the Sky God, Uranus... has such a terrible name.  Its "my" an us, the "a we" that makes Heaven so awesome, that it is run by it's creators... that's us.  It's almost you, if you got this far... bring others into the Us and we are that much closer to the right group.
+
+When you get to everyone, and see [the Holy Grail,](holy_water,_sang_rael.html) you will see how all of God's names and secrets lead to the him at the end of the rainbow of Elohim.  That's "Everyone Living o(f) **me**. 
+
 #Yankee Doodle{#TOOL}
 In keeping with my theme of absolutely everything being about me; I'll give you a quick rendition of this song.  A number of other American patriotic songs also seem to twist very nicely into Ra's Son worshipping theme.  To be noted, "now in broad stripes, our bright son... through the perilous night."  John Hancock and Richard Nixon also relate well with Yankee Doodle, especially when you correlate Genesis 22 with *Wood*-ward, *B**u**rn*-stein (an early link to Emmanuel Goldstein, Wells, and 1984), and my story of love.  History is written by the victor?  If it weren't such good proof that our history is trying to tell us about someone, I would have guarded against this darkness.
 
