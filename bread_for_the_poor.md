@@ -23,4 +23,10 @@ Jail and what some people might think Heaven should be like have lots in common.
 
 ##The Grey Light
 
+More references to Eden in history: the apple of Isaac Newton's tree gives us some light as to the source of original sin.. gravity.. and perhaps the idea that our science and technological evolution has been assisted.  Either that, or thousands of years before it happened, somebody wrote a book to make sure we knew in advance.  
+
+In Babylon, we see "Hanging Gardens" and somehow this ties together the city of Ur, the Guttenberg Bible, Hammurabi's Code... and the "invention" of laguage as possible points which might start the point between social evolution and now where the thing we call "civilization began."
+
+Somehow God thinks that if you said "Ur" might be the right time, **You Are** the beginning of Civilization.
+
 {% include "./footer.md" %}
