@@ -166,6 +166,8 @@ This is the place where we find out why God exists, how Osiris came to be, and t
 
 When you get to everyone, and see [the Holy Grail,](holy_water,_sang_rael.html) you will see how all of God's names and secrets lead to the him at the end of the rainbow of Elohim.  That's "Everyone Living o(f) **me**. 
 
+I had a key once to this thing about an us and a we, it was Intel... Itanium, "It" the answer, in Latin **a**ccusative and **n**ominative so **u**s or **m**e.
+
 #Yankee Doodle{#TOOL}
 In keeping with my theme of absolutely everything being about me; I'll give you a quick rendition of this song.  A number of other American patriotic songs also seem to twist very nicely into Ra's Son worshipping theme.  To be noted, "now in broad stripes, our bright son... through the perilous night."  John Hancock and Richard Nixon also relate well with Yankee Doodle, especially when you correlate Genesis 22 with *Wood*-ward, *B**u**rn*-stein (an early link to Emmanuel Goldstein, Wells, and 1984), and my story of love.  History is written by the victor?  If it weren't such good proof that our history is trying to tell us about someone, I would have guarded against this darkness.
 
