@@ -27,6 +27,6 @@ More references to Eden in history: the apple of Isaac Newton's tree gives us so
 
 In Babylon, we see "Hanging Gardens" and somehow this ties together the city of Ur, the Guttenberg Bible, Hammurabi's Code... and the "invention" of laguage as possible points which might start the point between social evolution and now where the thing we call "civilization began."
 
-Somehow God thinks that if you said "Ur" might be the right time, **You Are** the beginning of Civilization.
+God thinks that if you said "Ur" might be the right time, **You Are** the beginning of Civilization.  I think we ought to tell him it doesn't start until he *stops talking* by putting his "first hi" in the Hebrew "I" (anokhi) and "you are" in Abraham's birthtown.
 
 {% include "./footer.md" %}
