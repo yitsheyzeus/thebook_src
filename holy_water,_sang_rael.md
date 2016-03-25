@@ -15,7 +15,6 @@ By "Us" I mean our generation, the people of the Earth of [post 9/11 America,](b
 
 ![let there be light is "sudo xe"](let-there-be-light3.png)
 
-
 ###Taking a step back, and looking at religion as if it were a message designed to be sealed up until now, it's words saved in time across millenium to find new meaning today shows the hand of a hidden designer influencing all of history.
 
 
