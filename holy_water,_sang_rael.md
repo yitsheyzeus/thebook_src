@@ -112,6 +112,7 @@ Revelation 7
 ```
 
 ![The Egyptian "Plague" of Hackers](neverfear.png)
+
 And so, walking on water, the Lamb gives you a little scroll.
 
 ###The First Plague, now a *Blessing in Disguise* shows us that Exodus is truly designed to deliver this message, along with our modern culture--through our idioms, music, and purpose.
