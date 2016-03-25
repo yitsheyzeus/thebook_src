@@ -4,7 +4,7 @@ I call this the Holy Grail not particularly because of what it is, which is a so
 
 {% if gitbook.generator == "website" %}
 
-<iframe src="https://player.vimeo.com/video/156698154" width="700" height="402" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
+<iframe src="https://player.vimeo.com/video/156698154" width="700" height="402" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen> </iframe>
 
 {% endif %}
 
