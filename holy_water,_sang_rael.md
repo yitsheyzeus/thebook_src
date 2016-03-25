@@ -77,7 +77,9 @@ From the S E A of Eden, to the S E A, the multitude of Revelation.
                                H E
  ```
                                 
-Seeing the word SEA expand from Eden, just like the name Adam does--from a small microcosm to the whole of humanity is the beginning of the Hand of God tying the beginning of the Holy Bible to the end, across millennium in a way that only makes sense when you see the fruition of prophesy in English; the language of the Messiah--which shows us clearly that SEA is an acronym for the first unit family in Genesis, one which is elucidated at Revelation by the first line of Genesis 1--tying the Spirit of God to Adam and *Everyone.*  Through Jesus and Mary and El and Asherah, and nearly every Patriarcal couple we see a big hint: this is the "stuff" of the *marriage of Revelation.*
+Seeing the word SEA expand from Eden, just like the name Adam does--from a small microcosm to the whole of humanity is the beginning of the Hand of God tying the beginning of the Holy Bible to the end, across millennium in a way that only makes sense when you see the fruition of prophesy in English; the language of the Messiah--which shows us clearly that SEA is an acronym for the first unit family in Genesis, one which is elucidated at Revelation by the first line of Genesis 1--tying the Spirit of God to Adam and *Everyone.*  Through Jesus and Mary and El and Asherah, and nearly every Patriarchal couple we see a big hint: this is the "stuff" of the *marriage of Revelation.*
+
+It is about the inclusion of *everyone willing to help* in the Holy Cause that is the creation of Heaven--a more perfect society.
 
 Taylor Momsen sings that "everyone must be saved."  There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  Asherah of course, is discussed in [*He Laughs, again*](hamd.md/he_laughs.html).  Like the **FisherKing** that asks "POF or King?" Asherah asks: "Ash.... or All Humanity?"
 
