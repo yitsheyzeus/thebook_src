@@ -3,8 +3,11 @@
 I call this the Holy Grail not particularly because of what it is, which is a sort of re-visualization of Creation itself as the chalice that holds Christ's blood; but rather because of how it does this.  It completely re-conceptualizes what "Creation" means, and does an amazing job of not only showing us that there is a grand design that unifies all religions... but that this design is meant to be revealed to us.   It's a great example of a perspective shift, one that takes us from a world on the brink of completely disbelieving that God even exists, left alone interacts with us; to a place where it becomes clear that not only is this interaction *constant* the relationship between God and humanity becomes a defining characteristic of who we are.  So the grail is not so much the descriptive pattern, the message you are about to read about, but rather the shift in your world-view that comes from understanding it.
 
 {% if gitbook.generator == "website" %}
+
 <iframe src="https://player.vimeo.com/video/156698154" width="700" height="402" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe><br/>
+
 {% endif %}
+
 ###[http://vimeo.com/yitsheyzeus/genesis](http://vimeo.com/yitsheyzeus/genesis)
 This video is a visual and musical representation of what I am explaining here, it might help... to read this chapter thoroughly.
 
@@ -81,7 +84,7 @@ Seeing the word SEA expand from Eden, just like the name Adam does--from a small
 
 It is about the inclusion of *everyone willing to help* in the Holy Cause that is the creation of Heaven--a more perfect society.
 
-Taylor Momsen [**sings** that "everyone must be saved." Dave Matthews echoes "five billion proud willing to punch it out... right or wrong, weak or strong..." and all of it ties back to the first three words of Genesis: "IN THE BEGINNING."](music_saves_all_souls.html) There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  Asherah of course, is discussed in [*He Laughs, again*](hamd.md/he_laughs.html).  Like the **FisherKing** that asks "POF or King?" Asherah asks: "Ash.... or All Humanity?"
+Taylor Momsen [**sings** that "everyone must be saved." Dave Matthews echoes "five billion proud willing to punch it out... right or wrong, weak or strong..." and all of it ties back to the first three words of Genesis: "IN THE BEGINNING."](music_saves_all_souls.html) There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  Asherah of course, is discussed in [*He Laughs, again*](hamd.md/he_laughs.html). 
 
 ![](1014066_436918383112075_4178235461669577390_n.jpg)
 
