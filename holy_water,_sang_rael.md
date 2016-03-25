@@ -133,6 +133,14 @@ I call this message the Holy Grail, like the cup that contains Jesus' blood.  Th
 
 ###He will pitch his royal tents between the seas at the beautiful holy mountain. Yet he will come to his end, and no one will help him. Daniel 11:45
 
+It is here, between the seas of Eden and Revelation that the "royal" tent has always been; the place where the impersonal waters turn to family, and the true message of the Sang Rael ... 
+
+{% if gitbook.generator == "website" %}
+<iframe width="520" height="292" src="https://www.youtube.com/embed/nlcIKh6sBtc" frameborder="0" allowfullscreen></iframe>
+{% endif %}
+
+Do you care?
+
 ```
 But the LORD hardened Pharaoh's heart and he would not 
 listen to Moses and Aaron, just as the LORD had said to Moses.
