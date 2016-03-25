@@ -53,7 +53,15 @@ Gensis 1:10
 You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel*](https://adjkjc.gitbooks.io/time-and-chance/content/the_tower_of_babel.html).
 
 ##He was holding a little scroll, which lay open in his hand. He planted his right foot on the sea and his left foot on the land. Revelation 10:2
+
 It might remind you of Paul Reverse's midnight ride, an American allusion to this dichotomy between land and sea that began in Genesis to link the ideas of water being people to this Revelation.  In Chapter 7, we see that before the Lamb's great multitude is a call not to harm *the land or the sea*, I hope it is clear that there are a significant number of additional verses which allude to the the "multitude" as being the sea; a great Holy Sea of people--we are--one that is about to be parted by the firmament in the Heavens, the rooftop which Nero "sings" and fiddles from... to start this fire *below.*
+
+We didn't start the fire
+It was always burning
+Since the world's been turning
+We didn't start the fire
+No we didn't light it
+~~But we tried to fight it~~
 
 ##Mary and the Whymar Republic
 
