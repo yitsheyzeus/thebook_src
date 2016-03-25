@@ -13,6 +13,7 @@ By "Us" I mean our generation, the people of the Earth of [post 9/11 America,](b
 
 > On the "first day" of Creation, God said **let there be light**, and hid it in the name of the second book, Exodus... in reverse.  It's targeted specifically to the computer age, by being written in Unix commands, "sudo" for *escalate to root and do...* light the world with the element Xenon, which doubles as a modern day Oracle database, and an [entry point into 7 periodic table elements which show foreknowledge of chemistry and today in Ecclesiastes 9:11 and Exodus itself.](behold,_the_burning_bush.html)
 
+![let there be light is "sudo xe"](let-there-be-light3.png)
 
 
 ###Taking a step back, and looking at religion as if it were a message designed to be sealed up until now, it's words saved in time across millenium to find new meaning today shows the hand of a hidden designer influencing all of history.
