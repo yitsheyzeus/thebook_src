@@ -83,7 +83,7 @@ It is about the inclusion of *everyone willing to help* in the Holy Cause that i
 
 Taylor Momsen [**sings** that "everyone must be saved." Dave Matthews echoes "five billion proud willing to punch it out... right or wrong, weak or strong..." and all of it ties back to the first three words of Genesis: "IN THE BEGINNING."](music_saves_all_souls.html) There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  Asherah of course, is discussed in [*He Laughs, again*](hamd.md/he_laughs.html).  Like the **FisherKing** that asks "POF or King?" Asherah asks: "Ash.... or All Humanity?"
 
-
+![](1014066_436918383112075_4178235461669577390_n.jpg)
 
 [Ha, me for "ash."](hamd.md/he_laughs.html)  That's "Adam's Sigma Heart," *Adam & Everyone.*
 
