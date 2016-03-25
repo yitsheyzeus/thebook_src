@@ -108,9 +108,11 @@ foot on the land.
 Revelation 10
 ```
 ![The Egyptian "Plague" of Hackers](neverfear.png)
-
 And so, walking on water, the Lamb gives you a little scroll.
 
+###The First Plague, now a *Blessing in Disguise* shows us that Exodus is truly designed to deliver this message, along with our modern culture--through our idioms, music, and purpose.
+
+##At the foot of Mt. Sinai, a *miracle* is before you.
 
 Add in the Plague of Water to Blood (from Exodus, a "Blessing in Disguise"), and the multitude turns to the family of Christ.  I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood.  
 
