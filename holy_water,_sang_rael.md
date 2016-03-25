@@ -111,6 +111,8 @@ And so, walking on water, the Lamb gives you a little scroll.
 
 In the Plague of Water to Blood (from Exodus, a "Blessing in Disguise"), God shows us the plan of turning the multitude to the family of Christ.  *Blood is thicker than water* and "Peace Frog" show us that the Plagues and the world is being prepared to see that the story of Exodus is a tool--one designed to show us God's plan is ancient; hidden away in a story of a battle between a miracle and visual parlor trick.  The unearthing of this message is no parlor trick, it's not magic to see that this plan is laid out in Genesis, Revelation, and Exodus--nor that this might be the beginning of an acronym for the "GREAT HOLY LIGHT" that Dave Matthews *hungers for.*
 
+It's not as visual as Exodus depicts it, but it's more miraculous, and what it does for us is show a mastery of time, one that has been recorded in history and music--and is highlighted by religion.  It shows us that this revealing is a true purpose of the stories, and that a grand design exists--and an Architect.
+
 {% if gitbook.generator == "website" %}
 <iframe width="520" height="292" src="https://www.youtube.com/embed/oTTx2AY30rE" frameborder="0" allowfullscreen></iframe>
 {% endif %}
