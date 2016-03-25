@@ -129,7 +129,9 @@ I wanna blow your mind
 Dave J. Matthews, "Hunger for the Great Light"
 ```
 
-I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood.  
+I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood--the family of Jesus Christ.  
+
+###He will pitch his royal tents between the seas at the beautiful holy mountain. Yet he will come to his end, and no one will help him. Daniel 11:45
 
 ```
 But the LORD hardened Pharaoh's heart and he would not 
