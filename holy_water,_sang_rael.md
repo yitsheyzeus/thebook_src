@@ -22,7 +22,7 @@ Genesis 1:1-3
 It's in the very first lines of Genesis that this pattern begins to emerge, from the darkness.  You'd expect nothing less, I'm sure.  Here, in the very first words 
 
 ##Holy Water is *people*
-This is a baptism, or at least what that concept metaphorically refers to, it's a shock with cold *water*, seeing that something so obvious has been hidden from the world *and absolutely nobody noticed.*  Like Soy*lent* Green, a cinematic tool to understand how water is people, Biblically, references to the sea, and *walking on people* (wow) are both clear as clues.  Christ walks on people to deliver this Revelation, it is my will--and His--to ensure that we do not lose the truth or our freedom.  There is no choice, hence, *walking on water.*  
+This is a baptism, or at least what that concept metaphorically refers to, it's a shock with cold *water*, seeing that something so obvious has been hidden from the world *and absolutely nobody noticed.*  Like Soy*lent* Green, a cinematic tool to understand how water is people, Biblically, references to the sea, and *walking on people* (wow) are both clear as clues.  Christ walks on people to deliver this Revelation, it is my will--and His--to ensure that we do not lose the truth or our freedom.  There is no choice, hence, [*walking on water.*](im_single.html)
 
 ![](whenthealmightywasstillwithme.jpg)
 An illustration of the Book of Job by William Blake. There is another [reference to *walking on water* in *I'm Single.*](im_single.html)
