@@ -88,7 +88,7 @@ Ecclesiastes 9:11
 
 The third reference superimposes over Earth, and the quote is “neither yet bread for the wise.”  The light of this statement is the periodic element Xe, for both an Oracle Database and the element responsible for camera flashes.  This is the location of our story of Exodus, and that whole word, taken in reverse speaks volumes.  In addition to “Xe,” the four letter command “sudo” is the Unix equivalent of “run as the God account.”  
 
-![](let-there-be-light3.png)
+![let there be light is "sudo xe"](let-there-be-light3.png)
 
 ###“sudo xe” is the logical equivalent of “Let there be Light.”  Exodus in reverse; in Linux and chemistry.  Geek.
 
