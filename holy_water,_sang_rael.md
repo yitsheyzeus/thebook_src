@@ -111,6 +111,20 @@ And so, walking on water, the Lamb gives you a little scroll.
 
 In the Plague of Water to Blood (from Exodus, a "Blessing in Disguise"), God shows us the plan of turning the multitude to the family of Christ.  *Blood is thicker than water* and "Peace Frog" show us that the Plagues and the world is being prepared to see that the story of Exodus is a tool--one designed to show us God's plan is ancient; hidden away in a story of a battle between a miracle and visual parlor trick.  The unearthing of this message is no parlor trick, it's not magic to see that this plan is laid out in Genesis, Revelation, and Exodus--nor that this might be the beginning of an acronym for the "GREAT HOLY LIGHT" that Dave Matthews *hungers for.*
 
+{% if gitbook.generator == "website" %}
+<iframe width="520" height="292" src="https://www.youtube.com/embed/oTTx2AY30rE" frameborder="0" allowfullscreen></iframe>
+{% endif %}
+
+```
+God's love is alive inside you
+You know who needs you
+
+I wanna be your hunger
+I wanna see you open wide
+And when I go down for you
+I wanna blow your mind
+```
+
 I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood.  
 
 ```
