@@ -10,7 +10,7 @@ You can eventually see that all religion, and history, and language was written 
 
 This change in "target audience" is one which is well pronounced in a re-reading of the story of Exodus, once you realize that the beginning of the fire of the Burning Bush is designed to [focus on an English word hidden within the ancient Hebrew for "holy flame."  That word is the parted "sea" of Moses, and in seeing that the entire story of parting a sea might come from the Revelation that English is hidden in ancient Hebrew... you might begin to see how "**Ha'esh**" quite literally starts a fire here and now](chapter1.html), about the story of Exodus being about "Us."  For what it's worth, there is a modern day event which also correlates to the Burning Bush, and [it is the inauguration of the eponymous President--who by speaking words of Ecclesiastes 9:11 months before the 9/11 attack answered a riddle that heralds the coming of Christ in Revelation.  This real-world Burning Bush is the Sign of the Son discussed in Matthew 24:30.](behold,_the_burning_bush.html)
 
-*Ready or not, here I come.*
+###*Ready or not, here I come.*
 
 ```
 In the beginning God created the heaven and the earth.
