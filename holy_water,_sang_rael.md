@@ -6,6 +6,8 @@ By "Us" I mean our generation, the people of the Earth of [post 9/11 America,](b
 
 I suppose to get "on the same page" as me, you have to start by allowing me to *postulate* that God exists, that there is a grand designer writing a secret message throughout all of history... in order to be able to prove that this hidden designer is the *only way* that this message could exist in the first place.  You must try to see that all religion, and history, and language was written in order to deliver a message to our time, to you--right now.  I am going to show you how ancient words include references to English, to [modern concepts (like the "root" of David being the Linux God account)](chapter1.html), and to ideas that the ["actual authors" could not possibly have known about.](he_laughs.html)  This is *how* we see the hand of God, by realizing that despite the fact that the authors of the Old Testament could not possibly have understood the English words for "sea" and "family" that not only did God understand and know about them at the time of writing Genesis--he makes a huge point of proving that foreknowledge to us... here at the time of Revelation.
 
+*Ready or not, here I come.*
+
 ```
 In the beginning God created the heaven and the earth.
 And the earth was without form, and void; and darkness 
@@ -16,6 +18,8 @@ And God said, Let there be light: and there was light.
 
 Genesis 1:1-3
 ```
+
+It's in the very first lines of Genesis that this pattern begins to emerge, from the darkness.  You'd expect nothing less, I'm sure.  Here, in the very first words 
 
 ##Holy Water is *people*
 This is a baptism, or at least what that concept metaphorically refers to, it's a shock with cold *water*, seeing that something so obvious has been hidden from the world *and absolutely nobody noticed.*  Like Soy*lent* Green, a cinematic tool to understand how water is people, Biblically, references to the sea, and *walking on people* (wow) are both clear as clues.  Christ walks on people to deliver this Revelation, it is my will--and His--to ensure that we do not lose the truth or our freedom.  There is no choice, hence, *walking on water.*  
