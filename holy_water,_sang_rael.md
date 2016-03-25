@@ -122,7 +122,9 @@ In the Plague of Water to Blood (from Exodus, a "Blessing in Disguise"), God sho
 It's not as visual as Exodus depicts it, but it's more miraculous, and what it does for us is show a mastery of time, one that has been recorded in history and music--and is highlighted by religion.  It shows us that this revealing is a true purpose of the stories, and that a grand design exists--and an Architect.  Through our idioms we see that modern culture, too, is part of the design.  Through the evolution of language from Hebrew to English and Spanish, that all of history is part of it.  Through the books of the Holy Bible, the hand of the designer clearly shows us **this is the Apocalypse.**
 
 {% if gitbook.generator == "website" %}
+
 <iframe width="520" height="292" src="https://www.youtube.com/embed/oTTx2AY30rE" frameborder="0" allowfullscreen></iframe>
+
 {% endif %}
 
 ```
