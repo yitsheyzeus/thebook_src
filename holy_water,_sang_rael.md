@@ -41,6 +41,7 @@ Genesis 1:1-3
 It's in the very first lines of Genesis that this pattern begins to emerge, from the darkness.  You'd expect nothing less, I'm sure.  Here, in the very first words we see imagery of a mathematical fraction, the Spirit of God *hovering over* the waters.  I've shown you what I see off to the right, and this simple equation that ties *family*, *eve*, and *ah* together will soon be part of a much bigger illustration of hidden allusion in ancient words.  With ["Menorah" lighting the purpose of this Revelation,](his_heart_and_sol.html) hopefully you will see that God's message of equality and liberty is part exaltation of our history, and part reminder that we still are not fully free.  In a somewhat modern movie, we have a big hint to one of the most pervasive hidden metaphors in all of religion... *Soylent Green is...*
 
 ##**Holy Water** is *people*
+
 This is a baptism, or at least what that concept metaphorically refers to, it's a shock with cold *water*, seeing that something so obvious has been hidden from the world *and absolutely nobody noticed.*  Our parted sea, over this proof of religion and the Second Coming itself leads us to  *walking on people* (wow) as a perfect example of how the hidden symbolism truly explains part of a hidden message--that the NT chastises Christ repeatedly for not *asking* the people ... anything.  [Stones to bread and *Mary's* "let them eat Cake instead" concur that the Last Supper might be hiding a hidden resentment of a lack of a menu.](bread_for_the_poor.html)  Christ walks on people to deliver this Revelation, it is my will--and His--to ensure that we do not lose the truth or our freedom.  There is no choice, hence, [*walking on water.*](im_single.html)
 
 ![](whenthealmightywasstillwithme.jpg)
@@ -141,7 +142,7 @@ Dave J. Matthews, "Hunger for the Great Light"
 
 I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood--the family of Jesus Christ.  
 
-###He will pitch his royal tents between the seas at the beautiful holy mountain. Yet he will come to his end, and no one will help him. Daniel 11:45
+###He will pitch his royal tents between the seas at the beautiful holy mountain. *Yet he will come to his end, and no one will help him.* -Daniel 11:45
 
 It is here, between the seas of Eden and Revelation that the "royal" tent has always been; the place where the impersonal waters turn to family, and the true message of the Sang Rael ... 
 
