@@ -52,9 +52,12 @@ Gensis 1:10
 ```
 You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel*](https://adjkjc.gitbooks.io/time-and-chance/content/the_tower_of_babel.html).
 
+##He was holding a little scroll, which lay open in his hand. He planted his right foot on the sea and his left foot on the land. Revelation 10:2
+It might remind you of Paul Reverse's midnight ride, an American allusion to this dichotomy between land and sea that began in Genesis to link the ideas of water being people to this Revelation.  In Chapter 7, we see that before the Lamb's great multitude is a call not to harm *the land or the sea*, I hope it is clear that there are a significant number of additional verses which allude to the the "multutude" as being the sea; a great Holy Sea of people--we are--one that is about to be parted by the firmament in the Heavens, the rooftop which Nero "sings" and fiddles from... to start this fire *below.*
+
 ##Mary and the Whymar Republic
 
-In the languages of today, "mar" is **sea** in Spanish, there's significant Biblical correlation between Spanish words and hidden meaning, like [Navidad and Christmas](the_letter_why.html) and the names [Jesus and Elisha.](the_tower_of_babel.html).  It's about the *Bride of Revelation* being *All Humianity* allah the "sea" and "ah."  All three of the names that make up the sea of Revelation are rough descriptions of "everyone," the Spirit of God, everyone, and the planet.  The **SEA** of Eden begins to reveal how **family** is related to the *waters of the deep.*
+In language, "mar" is **sea** in Spanish, there's significant Biblical correlation between Spanish words and hidden meaning, like [Navidad and Christmas](the_letter_why.html) and the names [Jesus and Elisha.](the_tower_of_babel.html).  It's about the *Bride of Revelation* being *All Humianity* allah the "sea" and "ah."  All three of the names that make up the sea of Revelation are rough descriptions of "everyone," the Spirit of God, everyone, and the planet.  The **SEA** of Eden begins to reveal how **family** is related to the *waters of the deep.*
 ```
 From the S E A of Eden, to the S E A, the multitude of Revelation.
          e v d                 H V l
