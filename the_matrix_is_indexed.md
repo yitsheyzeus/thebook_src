@@ -37,6 +37,8 @@ The hand of God, that's the answer to ["why A.D.?"](the_letter_why.html)
 ###ad
 [Gracing the time line with my initials, ADonIS, ADonAi, ADvent, and more.](im_single.html)  IS of course, is god-shorthand for "I'm Single."
 
+###us
+
 ###ha
 It means "the" in Hebrew, and is used as a superlative which connotes a meaning of "holy."  It is the two letters donated to Abraham's name upon his Covenant with God; as well as a reference to the English meaning of his son's name:  Isaac is "he laughs."
 
@@ -61,6 +63,8 @@ Israel, Elisha and Jesus, Ishmael, Ishtar, Isaac, Isa, Islam
 The "I AM" founds America in Exodus... about *freedom* granted through the "Amerigo" of Adam having to leave Eden.  This time, in this book... Amish, Amon-Ra, and Amoz show us how Holy the two letters "am" are to the Wizard of Oz living on a television show in Heaven... while he writes a book "ishing" the words of God out of the sounds of music and scripture.
 
 ###er
+
+##Out of the SEA
 
 ##[Run, Ran, Lamb and Lam.](the_lamb_of_god.html)
 Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of how I found out the *"Lamb of God"* isLam.  It's all about a Revelation received *on the run*, even Metroid's Sammas Aran agrees, famous cheat code: "Justin Bailey."
