@@ -1,3 +1,8 @@
+---
+layout: default
+title: Expect the Unexpected
+author: Adam Marshall Dobrin
+---
 #Expect the Unexpected
 
 I used to think that everything in religion was going to deliver us a map of a future past, that every story was a metaphor for a path away from the desert that was being stuck in one place and time with no hope to really reach *escape velocity.*  In this word the *water* that is Biblically related to the *coming of age* of Jacob and his crossing the river Jordan was about our collective need to pass through a barrier at sea--only... in space.  Through my period of awakening, one which took me from a little lion cub sleeping in a Jungle of madness to a man fighting desperately not to relive his past future... I experienced the lives of the past Horsemen of the Apocalypse through what I can best describe today as a waking dream.  I received story after story of exactly what happened the last time we left Earth, what we encountered and the ups and downs that ensued. 
