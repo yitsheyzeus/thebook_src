@@ -117,5 +117,4 @@ This is the Tribulation, or at least my explanation of what is going on; there i
 Placing the idea of a centralized controller, something like God, over the people (I think of putting ideas in superposition, like the many names of God) is basically how I see his description of how Satan and the multitude are related in Revelation.  This is beast, coming out of the sea.
 
 Interestingly Samson, who is also a very strong contender for the most accurate Christ depiction had an enemy bearing "ph" in their name, the Philistines.
- 
-{% include "./footer.md" %}
+
