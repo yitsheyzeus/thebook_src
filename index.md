@@ -46,14 +46,14 @@ Understanding how hiding a message, from the author and world can do that is imp
 
 Today, as technology gets more advanced more rapidly, He shows us how science and the future have always been at the heart of scripture--waiting to be unsealed.  All of history, religion, and a big part of everything around us is created--taylored to help us right now, here... in *The Book of Life.*
 
-##True Purpose
+## True Purpose
 The purpose of the apocalypse is the disclosure of the secrets of religion.  Long held as a [mask for technology](the_encl.html) and a means to oppress and control the people, today it becomes the tool that liberates the masses from the slavery of Egypt, in our Exodus from darkness in the post 9/11 world.
 
 Designed to expose the existence of advanced technologies, the hidden symbolism in religion act as a guide to lead us through the assimilation of these hidden tools which are the building blocks of "Heaven or Hell."  With the proper guidance we will transition our society towards a more perfect future, better than one we had before, the one responsible for sending us this message.  [Great social reforms are suggested](the_lamb_of_god.html#ISA) and discussed on the pages that follow.  Short term goals are nothing short of ending world hunger and drastically improving our understanding of medical science.
 
 Woven into this discussion are a series of lingusitic artifacts, hidden clues to the true will of God.  He has written it in our names, with our hands, and his voice echoes into the far reaches of the future--through us.
 
-#In the beginning was the Word
+# In the beginning was the Word
 
 This is likely a good way to begin, at least as good as any other.  I am the messiah, and a great deal of the [Holy Bible secretly chronicles events in my life.](the_lamb_of_god.html)  In addition to this to qualify my status as the savior of humanity, [I am in this work teaching the world a number of things that are prophesied in the life of the fictional Jesus Christ](the_letter_why.html) in the New Testament.  I can see hidden messages in the Bible and in our history which are part of a map to salvation that has been carefully laid by [God and Heaven.](the_light_of_heaven.html)  With this sight comes a knack for reading a hidden language, one which is a big focus of this work.  
 
@@ -79,7 +79,7 @@ The Book of Exodus specifically does an amazing job of hiding the fact that it i
 
 Aside from Exodus, the details of Christ's life in the Gospels, the battle in the Book of Judges, and the Old Testament parallel of the Crucifixion of Jesus Christ are central to the story of my life, one which you are hopefully about to read.  I will answer most of the questions you have in your mind right now, if you give me the time.  Please bear with me, this is no easy task.
 
-##My name is Adam Marshall Dobrin
+## My name is Adam Marshall Dobrin
 
 My first name might remind you of a cartoon character in Eden, a naked guy that was ashamed of eating an apple.  The real Adam, the author of this book, will be quick to point out that his Biblical counterpart in reality is Isaac.  Whether you stuck with the theme and think I'm talking about the son of Abraham... or went way out in left field and thought of Sir Isaac Newton, we'll you'd be right.  You see in keeping with the earlier stated theme; these are all metaphorical representations of the same character.  
 
@@ -108,10 +108,10 @@ While I'm in the front, it seems my play on time is won.
 ![Y its Hey, Zeus!](YITSHEYZEUS.jpg)
 We are now *Post-face.*
 
-##and the Word was with God
+## and the Word was with God
 I must be alluding to something with these references to John 1:1, and, [believe it--more than a psuedo-superstitious aversion to the word "end." 9's](the_encl.html) and the letter "I" be damned, I'm going to tell you:
 
-###[*The Word* is fire.](chapter1.md)
+### [*The Word* is fire.](chapter1.md)
 
 It's not just in this somewhat well known John verse, it's also in Matthew 3:11, where it heralds the second coming of Jesus Christ.  Moe than anything, this fire begins all the way back in the Book of Exodus.  It's the one witnessed by Moses, the final character in my "Messianic short list."
 
@@ -122,7 +122,7 @@ a feather ((blowing the wind))?
 an ((ish)) of George W. Bush quoting Revelation 20:1 and Nostradamus
 
 ```
-##What's that? You don't think I'm the Messiah?
+## What's that? You don't think I'm the Messiah?
 Expecting a [sign in the sky?](behold,_the_burning_bush.html)  Someone that can [walk on water,](holy_water,_sang_rael.html) leap tall buildings in a single bound... or some other miracle?  I was too, and still want and believe we [will get *another* sign literally in the sky.](my_dying_breath.html)  In the mean time what I am presenting to you is miraculous, intricately woven intro everything that we are, our culture.  It's intricate and subtle, and because of this we have been completely blind to the presense of something supernatural.  
 
 There are very good reasons why the message that is being presented to you is hidden, and that it is possible to view it as mere coincidence.  It is designed to change our world for the better, not to cause destruction.  It will spread slowly at first, as those that are truly interested in our future begin to see what is being presented.  Within the prophesy being fulfilled is an explanation of new technologies being brought to us, how to use them properly, and what not to do.  This information comes from the future, they know what has happened before and are helping us through a transition that has been very difficult in the past.  God is well prepare for the apocalypse, he has been planning it for a long, long time.  He knows what effect it will have, and we are using this disruption--arguably the largest one in history--in order to to alter the course of history.  It will save the world.
