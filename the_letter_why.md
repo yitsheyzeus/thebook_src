@@ -1,3 +1,8 @@
+---
+layout: default
+title: The Letter Why
+author: Adam Marshall Dobrin
+---
 # The Letter Why
 {% if gitbook.generator == "website" %}
 <iframe width="854" height="480" src="https://www.youtube.com/embed/tXc4jgUJEko" frameborder="0" allowfullscreen></iframe>
