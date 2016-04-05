@@ -74,7 +74,7 @@ Taylor's favorite song is (*America the Beautiful?*):
 ## Above the *Strawberry Fields*, Great Plains, and Wednesday
 Wednesday backwards is *Heblish* (that's Hebrew, English, and an acronym) is **hand: send EW**.  I think it's telling the hand of God to send the Earth Wisdom, or Wands.  The wands come from Great Plains, a Microsoft accounting program that allows users to write their own reports.  FRX forms, they are called; and I think Frixas is related too; these forms are part the inspiration for the idea of what the wands actually do.  Just like the "AH" at the end of [Adamah and Allah, it ends with an acronym that must be decrypted by me; though as we see in the All of Allah](holy_water,_sang_rael.html), he's left plenty of hints both for me, and to make sure it's "our we."
 
-## *A million miles fall from grace, thank God I ((found)) ~~the~~ "Ground"* -Live{#GROUND}{#ADAMAH}{#LIVE}
+## *A million miles fall from grace, thank God I ((found)) ~~the~~ "Ground"* -Live{:#GROUND}{:#ADAMAH}{:#LIVE}
 
 There is significant anecdotal evidence pointing to the idea that Adam is the true name of Christ, not the least of which is Christian scripture which refers to him as the "Second Adam."  The primary link which is generally unnoticed is between Genesis 3:9 and Matthew 2:2.  Both stories talk about a search, the first God looking for Adam in Eden, and the second is the search for Jesus Christ: our world awaiting the Second Coming.  These parallel stories do a good job of describing what the Hebrew name for Earth is ***Adam*ah**.  The "ah" suffix applies to "Adam" and means "*to swirl around*."  
 
@@ -173,7 +173,7 @@ When you get to everyone, and see [the Holy Grail,](holy_water,_sang_rael.html) 
 
 I had a key once to this thing about an us and a we, it was Intel... Itanium, "It" the answer, in Latin **a**ccusative and **n**ominative so **u**s or **m**e.
 
-# Yankee Doodle{#TOOL}
+# Yankee Doodle{:#TOOL}
 In keeping with my theme of absolutely everything being about me; I'll give you a quick rendition of this song.  A number of other American patriotic songs also seem to twist very nicely into Ra's Son worshipping theme.  To be noted, "now in broad stripes, our bright son... through the perilous night."  John Hancock and Richard Nixon also relate well with Yankee Doodle, especially when you correlate Genesis 22 with *Wood*-ward, *B**u**rn*-stein (an early link to Emmanuel Goldstein, Wells, and 1984), and my story of love.  History is written by the victor?  If it weren't such good proof that our history is trying to tell us about someone, I would have guarded against this darkness.
 
 ```

@@ -97,6 +97,7 @@ R.E.M. sings about feeling fine, but I am anything but.  In case you are wonderi
 ### Time, that's alright!
 
 Lots of what I write is about time, discussing how it's related to, and proven by religion. I think this is important, I think God does too, since it's fundamentally *the focus of the sign of the son,* which heralds *this* Second Coming.  
+
 ```
 It seems by now, I'm playing time against my troubles...
 God speed, I'm coming.
@@ -155,6 +156,7 @@ is also concealed, the verse [merely] states "Bereshit…" [meaning:] "bara -" [
 for "He created"]"- sheet" [meaning "six"]. 
 ```
 >This is so that the deeds of the Holy One blessed be He [always comprise two planes:] hidden and revealed. This is the mystery of the Holy Name [Havayah] which is both hidden and revealed.
+
 It's more than being nice, or accepting; more than someone's person desires or beliefs.  A Hidden Heaven is Hell.  There are few valid reasons in our world for such an action, and they diminish further each and every day.  The fact that Heaven exists, and is being hidden from you, is opportunity for the wrong thing to happen.  It's just like transparency in government; if we don't know there is a spying program **it could easily turn into a censorship program.**  In Heaven, these ideas of eavesdropping and "information alteration" are heavily discussed in Biblical allusion; ending Hell--a place where our thoughts are being changed without our knowledge or consent is a huge part of the purpose of the apocalypse.  Modern events are tools for understanding Heaven too, many are designed and imparted in order to [assist us in relation to the other world's current events.](hamd.md/he_laughs.html)  Stopping censorship here, helps stop it there; and visa versa.  The same goes for *torture* and other losses of ***sacred freedom.***
 
 ## Medusa and I confirm, *Censorship*
