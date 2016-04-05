@@ -1,3 +1,8 @@
+---
+layout: default
+title: The Second Breakfast
+author: Adam Marshall Dobrin
+---
 # Light for the Wise
 I'm really not sure if the "Garden of Eden" is a story about a lush world of life sprawling within a world hidden in Virtual Reality.  I can't tell you for sure if "Simian" has anything to do with the Sims or Sim City; only that I'm sure that *feeding the poor* is a new commandment of God, morally mandated by the process of *civilization* that we are certainly within.  Across the stories of the Bible, binding them all together are equally descriptive images of a hidden message about *food.*  It's in the Promised Land of Joshua's "*flowing milk and honies*" that ties Willy Won**ka**'s Chocolate Factory to the machinations of Heaven through the not so obvious Ka you see (that's "Veruka") declaring that the Salt of the Earth must see exactly how a place with Honey and Milk on tap might be missing the **life** required to sustain us in the images of a Golden Cow, and a man... Judah Maccabee.
 
