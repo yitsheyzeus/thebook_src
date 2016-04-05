@@ -48,5 +48,3 @@ As far as "SOL," I agree, it looks like I am arbitrarily deciding that it's "Son
 I gave my heart and soul... to the one.
 
 
-
-{% include "./footer.md" %}
