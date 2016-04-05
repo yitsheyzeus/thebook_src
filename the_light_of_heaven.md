@@ -1,3 +1,8 @@
+---
+layout: default
+title: The Light of Heaven
+author: Adam Marshall Dobrin
+---
 # The Light of Heaven
 
 All around us we have a hidden message that is designed to be sought and contemplated.  There is a plan to help our civilization grow with technology, and overcome social awkwardness... "growing pains" that come with the rapid learning and growing process that we are literally right in the middle of.  It is about seeking a more perfect society, making our home "heavenly."  The technology that is just over the cusp of our reach is literally the building blocks of the place we know as Heaven.  If you think about it, the fact that we are destined to "build it" puts the true touch of perfection ... our dreams to become reality.
