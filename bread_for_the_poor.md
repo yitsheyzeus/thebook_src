@@ -16,17 +16,17 @@ Is sheer "will why I won the Ka," or is it because the message is so cleverly wo
 
 One (Heaven) if by "El, and..." two if by the Holy Sea; there might be even more if everyone could see how much work has gone into delivering this message in a way that showed us clearly that it was all for thee.  
 
-###Neither yet "bread for the wise," Ecclesiastes 9:11 says to our we,  yet I'm sure that's whats coming from me.  Light, we are fed, to ensure that hunger gets destroyed by the sea.
+### Neither yet "bread for the wise," Ecclesiastes 9:11 says to our we,  yet I'm sure that's whats coming from me.  Light, we are fed, to ensure that hunger gets destroyed by the sea.
 
 
-##Green Eggs and Ham, Sam I AM.
+## Green Eggs and Ham, Sam I AM.
 It wasn't until late 2015 when I made the connection between Dr. Seuss, the angel of death, and the food I was being offered in the Broward County Jail.  Nearly ever day, some disgusting processed ham and ancient eggs reminded me that Sam must be the "I AM."  It was here that the Grey Light of the Apocalypse flew forth from my fingers, as I desperately tried to share the knowledge that I'd been given with the world, from behind a locked jail cell.  
 
 My claims of forced starvation are not an exaggeration, they are part of the obvious problem that has befallen this system.  The "presumed innocent" are seen as a burden on society, when it is the society forcibly incarcerating them that is the problem.  We should be rehabilitating, helping those that have been forced to steal to feed themselves in a broken economy to find useful and meaningful jobs.  Instead we starve them, as is clearly highlighted by the dichotomy between the institutional diets of the criminal justice system compared to hospitals.  This starvation is further highlighted in Ecclesiastes 9:11; forget "bread for the wise," we are with-holding it from the innocent.
 
 Jail and what some people might think Heaven should be like have lots in common.  You have no real worries, you are fed and clothed by the state; and for a long time I would have explained that this might be "Heaven done wrong."  It is the accused that are being fed; bread for them in a world where my message was once to firmly explain that a modern society like ours has no business allowing any starvation.  
 
-##The Grey Light
+## The Grey Light
 
 More references to Eden in history: the apple of Isaac Newton's tree gives us some light as to the source of original sin.. gravity.. and perhaps the idea that our science and technological evolution has been assisted.  Either that, or thousands of years before it happened, somebody wrote a book to make sure we knew in advance.  
 
