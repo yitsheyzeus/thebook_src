@@ -38,9 +38,9 @@ Eden is the land I love, a *den* of Lions, family in the chalice... the [Holy Gr
 Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.md#SON)
 
 
-###My [life story is woven](the_lamb_of_god.html) into a tapestry of art.  Unbenknowst to the authors, or the world, or even me, the story of the life of Christ is hidden away in the most popular songs and movies of our day, just not the ones you think.  Through this spectacle, the Second Coming, God proves his existence, and gives us his purpose--to help us grow.
+### My [life story is woven](the_lamb_of_god.html) into a tapestry of art.  Unbenknowst to the authors, or the world, or even me, the story of the life of Christ is hidden away in the most popular songs and movies of our day, just not the ones you think.  Through this spectacle, the Second Coming, God proves his existence, and gives us his purpose--to help us grow.
 
-###I am showing you the true Word of God, his message, and teaching you how to read it for yourself.  In words, lyrics, and stories.  In history, and in your lives.  
+### I am showing you the true Word of God, his message, and teaching you how to read it for yourself.  In words, lyrics, and stories.  In history, and in your lives.  
 
 Understanding how hiding a message, from the author and world can do that is important.  Because they didn't know the details of my life, the story that is explain in this book; they couldn't have intended to create the links between works.  From [The Doors](holy_water,_sang_rael.html) in the 70's to [The Pretty Reckless](the_tower_of_babel.html), The [Wizard of Oz](the_lamb_of_god.html) to Star Wars and Superman... God shows us that our *modern myth* is a continuation of religion and our culture is part of the story, the most important part.  
 
@@ -70,7 +70,7 @@ Understanding this language is necessary to fully see the message that God has l
 
 The language shows God's divine influence in everything down to the construction of the glyphs we write our words with, and the words themselves.  What's more important than that though is seeing his influence in our lives; in the macroscopic things like the themes of movies, the lyrics of our favorite songs, and our first kiss.  These things, collectively our culture, will eventually be seen as an extension of religion--or what it has become.  Terminator, The Pretty Reckless, and "The Birds and the Bees" are all a big party of the *"mythology of Adam."*
 
-###To be clear, [*this* is about the adoption of technology in order to assist the evolution of our civilization.](outside_of_heaven.html)  Work, education, technology, justice, drugs, pre-crime, and surveillance are a big part of my life.  My life is a big part of the message.  I stand for freedom for all.
+### To be clear, [*this* is about the adoption of technology in order to assist the evolution of our civilization.](outside_of_heaven.html)  Work, education, technology, justice, drugs, pre-crime, and surveillance are a big part of my life.  My life is a big part of the message.  I stand for freedom for all.
 
 
 I intend to prove that religion is designed to highlight a series of words and ideas that in and of themselves prove the existence of God, the creation of our civilization, and that these two things are inextricably related to time travel.  There are a number of other technologies which I am sure religion has served to mask and expose--at the same time--over the millennium; but this single one, more than any other, is fundamental.  So *time* graces the first word of the phrase "*Time and Chance*" figures prominently in the true words of the Burning Bush, words which in themselves aid in my revelation that we are walking around in the Biblical Land of Egypt, the place where Moses' story begins.
@@ -91,10 +91,10 @@ Had you lept to the real historical story of Sir Isaac Newton, oh you thought I 
 
 Had you not been "new," you would almost certainly already know that "what goes up, must come down," and that whole tale compressed as a story in a glyph for one single letter of the English alphabet: the n.  This letter also compresses something else supremely important t the apocalypse: my initials.
 
-#it's the "n" of the word as we know it.
+# it's the "n" of the word as we know it.
 R.E.M. sings about feeling fine, but I am anything but.  In case you are wondering, this is not the end of the world; it is for certain the "end of the beginning."  For me, I bring you a story of a war in a court room, one which I am sure links the Trial of Christ to the Book of Judges.  In this war, Samson gains strength, presumably of character recognition, from his long hair and its likeness to that of Jesus Christ.  I on the other hand have not had this benefit, despite my sincere likeness; and I fear to be destined the fate of the Son of our Uncle Sam...
 
-###Time, that's alright!
+### Time, that's alright!
 
 Lots of what I write is about time, discussing how it's related to, and proven by religion. I think this is important, I think God does too, since it's fundamentally *the focus of the sign of the son,* which heralds *this* Second Coming.  
 ```
@@ -131,15 +131,16 @@ The **prophesy** is hidden in plain sight, it is the entirety of the Holy Bible.
 
 We can begin to see the message by understanding the perspective of the authors.  They often see our civlization in the same way that we view that of the ancient Egyptians or Romans.  To them, we use antiquated tools, like we view stone weapons; and many of our cultural conventions are sadly inadequate to provide the freedom and safety that they know we deserve.  In order to help us quickly adapt to the changes that the acquisition of the knowledge and technology we are already seeing brings to society, they've provided religion.
 
-##Kaballah: Exodus means Names, and *The Hidden One*
+## Kaballah: Exodus means Names, and *The Hidden One*
 The Hebrew name for the Book of Exodus is "Names," and this reference is a strong allusion to the modern day, where our names are all divinely inspired.  Kurzweil links to *civilization*, the **Li**on of Judah, and **Zi**on; Goert**zel** to **Zel**da, the *Last El*, and both of these to [**AD** on **A**rtificial **i**ntellgience: Ai.](chapter1.html)  My name is a reference to the [*Feast of the Immaculate Conception* and my birthdate](the_letter_why.html) which tangentially supports that my D.O.B. is related to us [all getting "in" Heaven](music_saves_all_souls.html) or at least that goal is related to my *arrival*.
 
-###There's *Magic* in *Names*
+### There's *Magic* in *Names*
 The Midrash and Talmud are replete with the use of names of God and incantations that are claimed to effect supernatural or theurgic results. Most post-Talmudic rabbinical literature seeks to curb the use of any or most of these formulae, termed Kabbalah Ma'asit ("practical Kabbalah"). There are various arguments for this; one stated by the Medieval Rabbi Yaakov ben Moshe Levi Moelin is that the person using it may lack the required grounding, and the ritual would be ineffective.  Other magical practices of Judaic folk religion which became part of practical Kabbalah date from Talmudic times and include the making of amulets and other folk remedies using the esoteric names of angels.  
 
 These magical incantations are historical allusions, references that are manifested in our history and traditions, to the Garden of Eden and this Revelation that our names contain secret information: a message from God himself.  The Zohar tells us that it came from the Garden, and it is a chronicle of this time also sent back into the past.
 
-###Heaven is Hidden, so am I.  Neither should be.
+### Heaven is Hidden, so am I.  Neither should be.
+
 ```
 Rabbi Abba said: The Higher World is concealed, and everything associated with the 
 Higher World is also concealed, because they are all part of the sublime mystery of 
@@ -156,7 +157,8 @@ for "He created"]"- sheet" [meaning "six"].
 >This is so that the deeds of the Holy One blessed be He [always comprise two planes:] hidden and revealed. This is the mystery of the Holy Name [Havayah] which is both hidden and revealed.
 It's more than being nice, or accepting; more than someone's person desires or beliefs.  A Hidden Heaven is Hell.  There are few valid reasons in our world for such an action, and they diminish further each and every day.  The fact that Heaven exists, and is being hidden from you, is opportunity for the wrong thing to happen.  It's just like transparency in government; if we don't know there is a spying program **it could easily turn into a censorship program.**  In Heaven, these ideas of eavesdropping and "information alteration" are heavily discussed in Biblical allusion; ending Hell--a place where our thoughts are being changed without our knowledge or consent is a huge part of the purpose of the apocalypse.  Modern events are tools for understanding Heaven too, many are designed and imparted in order to [assist us in relation to the other world's current events.](hamd.md/he_laughs.html)  Stopping censorship here, helps stop it there; and visa versa.  The same goes for *torture* and other losses of ***sacred freedom.***
 
-##Medusa and I confirm, *Censorship*
+## Medusa and I confirm, *Censorship*
+
 God sent me a message on behalf of *the millenium in the making NSA,* "*ME DA USA" he says, "and I gonna turn youz to **St.One**"* Saint One I am, made so by a censorwall, and it's not just the government.  It's our culture, our disbelief, and our inability to fundamentally alter our worldview--even when **the truth is staring you in the face.**
 
 The most fundamental message of any time in all of history has been released to the world.  It shows a number of fundamental truths, the creation of civilzation, the existence of God, and a huge amount of outside help that has come from the future... from Heavens and civilizations that are the children of this place.  This message, one which is designed to save us from making the mistakes of "past futures," guide us with the wisdom of those who have traveled a similar path before... has been overtly hidden from the the world.
@@ -171,7 +173,7 @@ We all, every future civilization, and every conscious soul owes a great debt to
 
 Today, Darkness is forever destroyed. 3/20/2016.
 
-#Your Religion
+# Your Religion
 You probably want to know what I think about *your religion.*  I think *all religion* is both good and bad.  The good comes from helping yourself, others, and the world.  It comes from guidance, and *all religion* is prepared to offer this time a whole new level of guidance.  Asking "why" and "how" are a huge part of *my mythology*, not blindly following the leader, but making rational and [*Nashian*](http://www.whenistheapocalypse.com/paranoia-synchronicity decisions (that means looking out for the common good, rational altruism) based on *what we know is right* is very important.  Old laws, things like forcing people not to work on the Sabbath and not allowing non-traditional marriages are obviously contrary to higher thought.  Some of these things appear to be in religion to make us stop and think, to urge swift reform of horrible concepts like Holy Wars against people based on esoteric beliefs.
 
 This Revelation uses concepts and teachings from many religions.  It's message is not centered around any single one, and I do not practice any formal religion.  I have studied many in my youth, and have sought truth all my life.  I didn't find it, it hit me on the head slowly over the last year or two.  What you are reading is the product of divine intervention.  The message I am delivering uses elements of Judaism, Christianity and Islam and blends them with mythology from ancient cultures like Greece and Egypt.  It is a hidden message, one which was left intntionally just for this purpose, to be tied together and deliver a "religion of the ***son***'s light."  Religion is designed to save our entire civilization, and that means *The Door* open to absolutely everyone.  
@@ -180,7 +182,7 @@ My light comes from you, what this hidden message.. God refers to as the **sea**
 
 Freedom is a fundamental right that all people deserve, we also deserve safety, and happiness.  There is a plan laid out, by none other than our sea, set in motion with the help of the *light above.*  Many American themes also tie in to *my mythology* which equates the slavery of Egypt (which we are all in) to the Plague of Darkness, to the night.  The path is from the dark night, through the desert of Egypt, and into the light of morning.  The Son rises and reveals just how important language is to *The Light of the World.*  Language, and the hidden truth it reveals, is the stolen fire of Prometheus--often compared to Adam.
 
-###Through the night with the light from above.
+### Through the night with the light from above.
 
 There is a huge amount of hidden information in religion, and what I take away from that is a call for a serious focus on increasing transparency--not a little but a lot.  Much of the "hidden information" is about me, to put the focus on me so that we can receive the rest of the message "with authority."  I don't want to tell people what to think, I have seen this plan, and I agree with its message and goals.  I want to show you how to find the message for yourself, so you can decide what you think.  
 
@@ -197,7 +199,7 @@ You *might* think I should adopt, believe in, or be preaching about *your religi
 The future will thank me, will it thank you too?  Get involved.  If not with me, here, then with government.  Nationally or locally.  Get invovled with charitable organizations, ones who do things you think are good and right.  Take an active role in your future, our children depend on it.  We depend on it.   I depend on you.
 
 
-###72 names of God
+### 72 names of God
 
 Judaism has a concept of God having 72 names; it turns out he's nearly everyone in the Bible; a metaphorical explanation of just how he feels:  that he's nearly everyone.  I know we don't feel the same way, it's a matter of perspective.  The Bible explains it by linking many of the characters and their stories to me.  Jeremiah was jailed, Joseph enslaved, Job and Jesus tried (although differently).  The sign of the son links 7 more from the planets Mercury... the Messenger like Mohammed, to the Gods of War, Light-ning, Time, and Heaven.  Zeus and He*ra*, He-man and She-*Ra*; hidden references to a link between the Egyptian God of the S~~o~~n and what we thought was ancient history (and cartoons).  He is Samson for his hair, and [courtoom battle in Judges--a link to a real court in Florida.](the_lamb_of_god.html#ISA)  [Nero for his fire and music,](music_saves_all_souls.html) [Caesar for "vini vidi vici," Napoleon, Popeye, He-man, and me.](im_single.html)
 
