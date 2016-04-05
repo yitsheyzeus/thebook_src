@@ -5,7 +5,7 @@ author: Adam Marshall Dobrin
 ---
 # The Voice from the Fire
 
-###I have heard a voice, you're suffering through all this noise. -Taylor Momsen
+### I have heard a voice, you're suffering through all this noise. -Taylor Momsen
 
 I hear the voice of God, and a huge part of *what is going on around me*; which is a phrase that he uses quite often, is that I am quite sure that you deserve to hear it also.  In Exodus, Moses was admonished and kept from seeing the promised land because of his lack of "faith."  I've always found it funny, as he is probably one of the only people documented in the story that should have had no need for faith.  He too heard a voice.  That voice enabled him to part a sea, by walking into until his head was covered; he was underwater... and if idioms could help us understand God's message, *he was in way over his head.*
 
@@ -16,7 +16,7 @@ I know, because I know that Moses is Christ.  His superposition with Adam in the
 
 The relationship between Moses and his parted seas is one of the most well laid hidden messages of the apocalypse.  It is correlated to the Egyptian story of the *uniting of two Lands* by their messiah, Horus.  Tied together through symbolism in American history; Paul Revere's midnight ride.  
 
-###One of by "El and..." two if by (the parted) seas..
+### One of by "El and..." two if by (the parted) seas..
 
 This message from within our history answers a question that most people probably never ever thought to ask, it is the number of Heavens that will result from our salvation during the period where Moses brings us proof of its existence, and a purpose for ours.  
 
@@ -24,12 +24,12 @@ I have heard a voice, one that speaks directly to me, and has now for a number o
 
 Early on, when I was doing drugs to help me communicate with this voice, knowing full well that I was Adam; and I was falling in Eden... the voice echoed a number of interesting phrases to me, to remind me of what was going on.
 
-###Adam is redeemed in the End
+### Adam is redeemed in the End
 This was one of my favorite in a standard repertoire of responses to what must have been His absolute favorite thing to say to me for quite a few years:*"this is how you fell."*  I knew that Adam and Christ are one, and are united by more than name, and the like... by the Lion of Eden and of Judah, and by the obviousness of the correlation between the fall and the cross.  I knew that what was happening to me was going to change the world, and it is.  *This is how you fell*, he would say, as I walked around Eden naked, arguing for the miracles that Moses received during his lifetime.  There is a significant sub-story here, about a battle between Father and Son; an ongoing argument where I have always been made the "Devils' Advocate," arguing for the ultimate innocence and worthiness of Humanity.  In my story, because I am a microcosm for humanity (highlighted by the meaning of the name Adam), and I was innocent, so too are you.
 
 My fight was not just against the lack of visible miracles from God, or the fact that I knew we were being harmed and deserved better.  I fought also against a government that is still to this day *hell bent* on hiding my existence.  It is true that I am a disruption, but the disruption that is the second coming is designed to change our world for the better.  My fight against America is highlighted strongly in the Bible and through a very profound idiom that relates to the Fall of Mankind.  My second favorite response to God's warnings, one which I hoped and knew the upper echelons of American government were listening to as they hid me from you:
 
-##Nations fall, not people.
+## Nations fall, not people.
 
 How, in one hour, thy mighty city has fallen.  To me the fact that I was being framed was obvious, Adam never fell; he was pushed.  "You push me, I am I am a Zombie..."   It should become clear that America is being changed, like me.  It is truly the Promised Land, but that means something different than most people think at first glance.  It is the change that is Promised, and divinely wrought.  American freedom has been attacked on purpose, with the intent of ensuring that Human freedom is never against lost.  America is Messiah also, a microcosm for humanity, and an example to the nations.  In our story, these examples are often of what not to do, or of things that must be fixed in order to help create the utopian world that God has promised and we are collectively about to deliver, to ourselves.
 
@@ -44,7 +44,7 @@ Thank God I ((found)) the Ground.
 
 So, as I fell, constantly reminded that I would be redeemed by the words of songs and the customs of our culture--which I have always held is the true light of Heaven; I was comforted more than anything by knowledge of exactly how I would be saved... no faith required.  So as I part this sea, through nothing more than existing, know that I am convinced that what I am doing is right; and you are better off to be arguing about whether or not I am real... than not to receive the gift that comes from from this "disruption."  With great faith, I walk into the sea, to bring us all to a new "Promised Land," one that is clearly visible to me.  I can see the shore.
 
-#Wells, Or-son?  Wellbutrin.
+# Wells, Or-son?  Wellbutrin.
 
 A big part of my ability to see the shore comes from the sight I receive by reading the messages of names.  These names are questions and answers, built to confirm a path through the parted waters.  Orson Wells is a link between Christ and Abraham's proverbial well in the desert of Egypt; here another personification... the well is the messiah.  This book is the water, the light that comes to quench our great thirst for knowledge and freedom, but nore than anything for serenity.
 
@@ -56,7 +56,7 @@ Over and over I made this argument, for *assistive tools* to be offered to the w
 
 "Well, but are 'in'.." on the way to Heaven, using the hidden language that named this anti-addiction drug, and walks me from my last name, DOB-R-IN, to the pearly gates.  This thing that I am asking for, an ability to positively change myself is part of the prophesy of solutions that has been delivered by Phillip K. Dick, who holds both my "letter," as his middle initial, and a reference to me, to Osiris, and to the Washington Monument.  I'm a dick, I guess, for being very sure that the series science fictional works that have come to us from above are a blueprint to solve so many of our social problems that I am sure this particular Android dreams furvitily of not "Electric Sheep," but of a society in control of its own actions for the very first time in all of history.
 
-#The Minority Report is "My Dying Breath"
+# The Minority Report is "My Dying Breath"
 [http://www.whenistheapocalypse.com/pkd-prophesy](http://www.whenistheapocalypse.com/pkd-prophesy)
 
 (this is an old piece of writing, it needs to be updated, edited, and clarified, but it is "on topic")
@@ -94,36 +94,36 @@ In reality, what I really hope you take away from this is that something very bi
 Maybe we should call it mind assistance, and forget about all the silly control business. 
 
 
-#Phixing Freedom and Logic
+# Phixing Freedom and Logic
 
 (another insert, old work, on topic)
 
 Nobody is mind controlling me.
 
-The greatest trick the Devil everpulled was convincing the world he didn't exist.
+The greatest trick the Devil ever pulled was convincing the world he didn't exist.
 -The Usual Suspects
 
-In 1971, William Colby testified before the Church Committee, and effectively had the CIA'sdabble into forced covert LSD administration and mind control testing effectively shutdown.  This would be the first and last public disclosure by a Central Intelligence Agency Director relating to ascientific attempt to modify and read the inner thoughts of human beings, the 'gist' of the disclosure was that they were usingnarcotics, electroshock, and EEG's in a program which was popularlybelieved to be working towards the creation of a "ManchurianCandidate."  This is the popular image of mind control, that one'sfaculties would be completely taken over, and given some audible or subconscious trigger code, would cause them to mindlessly commit some crime.. like assassinating a public figure at aspeaking engagement.  This perception is stupid.
+In 1971, William Colby testified before the Church Committee, and effectively had the CIA's dabble into forced covert LSD administration and mind control testing effectively shutdown.  This would be the first and last public disclosure by a Central Intelligence Agency Director relating to a scientific attempt to modify and read the inner thoughts of human beings, the 'gist' of the disclosure was that they were using narcotics, electroshock, and EEG's in a program which was popularly believed to be working towards the creation of a "Manchurian Candidate."  This is the popular image of mind control, that one's faculties would be completely taken over, and given some audible or subconscious trigger code, would cause them to mindlessly commit some crime.. like assassinating a public figure at a speaking engagement.  This perception is stupid.
 
-While the ability to“remotely control” a human being is without doubt within thecapabilities of intelligence organizations such as the CentralIntelligence Agency, MI-6, and the former KGB, remote neuralstimulation could also be much more subtle.  It could be used to makeyou ignore, or not care about something that you would otherwise findimportant, like democracy, privacy, andfreedom of speech.  Itcould make you believe that something you read which you wouldotherwise find intelligent and thought provokingis.. off the wall.  Mindcontrol could be used to make you forgive a person or anorganization, maybe your governmentfor something that you probably shouldn't forgive them for.  It ispossible that it would be so subtle that you would never, ever knowit was happening to you.
+While the ability to “remotely control” a human being is without doubt within the capabilities of intelligence organizations such as the Central Intelligence Agency, MI-6, and the former KGB, remote neural stimulation could also be much more subtle.  It could be used to make you ignore, or not care about something that you would otherwise find important, like democracy, privacy, and freedom of speech.  It could make you believe that something you read which you would otherwise find intelligent and thought provoking is.. off the wall.  Mind control could be used to make you forgive a person or an organization, maybe your government for something that you probably shouldn't forgive them for.  It is possible that it would be so subtle that you would never, ever know it was happening to you.
 
-Remote neural control of the human brain would also give these organizationsthe ability to fully control the autonomic nervous system – theycould cause people to suffocate, haveheart attacks, orneurological disorders like Schizophrenia, Parkinson's disease, andAlzheimer's... its even possible that this could be done to anAmerican President.  There are anumber of writers and scientists “on the trail of the Octopus”who have suffered from untimely deaths due to heart attacks, notably:Jim Keith, Sean Stinn, and John Norseen.  Before his death, John Norseen had been talking about Lockheed's "mind control" abilities.  He was a senior engineer and scientist working for that company on a government project called 'bio-fusion.'
+Remote neural control of the human brain would also give these organizations the ability to fully control the autonomic nervous system – they could cause people to suffocate, have heart attacks, or neurological disorders like Schizophrenia, Parkinson's disease, and Alzheimer's... its even possible that this could be done to an American President.  There are a number of writers and scientists “on the trail of the Octopus” who have suffered from untimely deaths due to heart attacks, notably:Jim Keith, Sean Stinn, and John Norseen.  Before his death, John Norseen had been talking about Lockheed's "mind control" abilities.  He was a senior engineer and scientist working for that company on a government project called 'bio-fusion.'
 
-Itmight also be able toinduce suicidal tendencies, and there are several writers andscientists that slit their wrists, and jumped from tall buildings:Danny Casolaro, David Kelly,  and Frank Olson.
+It might also be able to induce suicidal tendencies, and there are several writers and scientists that slit their wrists, and jumped from tall buildings:Danny Casolaro, David Kelly,  and Frank Olson.
 
-Mindcontrol may also beable to induce in the minds of Senators like Diane Feinstein, SaxbyChambliss, and Bill Nelson, who might know about theexistence and capability of the technology,that it is only being used for legitimateintelligence gathering purposes, and not against thepopulation of the United States of America, or themselves. Itcould make otherwise good and patriotic representatives ignoreprograms which completely disregard American values and theprotections of the Constitution of the United States of America –like the Patriot Act, and the Carnivore Operation.  It might also make them and you not care that these programs were in place before 9/11, and that tragedy being used to justify their existence makes.. no sense... temporally speaking.
+Mind control may also be able to induce in the minds of Senators like Diane Feinstein, Saxby Chambliss, and Bill Nelson, who might know about the existence and capability of the technology,that it is only being used for legitimate intelligence gathering purposes, and not against the population of the United States of America, or themselves. It could make otherwise good and patriotic representatives ignore programs which completely disregard American values and the protections of the Constitution of the United States of America –like the Patriot Act, and the Carnivore Operation.  It might also make them and you not care that these programs were in place before 9/11, and that tragedy being used to justify their existence makes.. no sense... temporally speaking.
 
-Goingback a few years, mind control mightbe the reason that clear and documented links between the CentralIntelligence Agency, top officials, and international cocainetrafficking went completely non prosecuted in the wake of Iran Contra..it might be the reasonthat the American public didn't care that in the following years,neither the sitting president nor his opponent mentioned the affair –at all in the next election.  
+Going back a few years, mind control might be the reason that clear and documented links between the Central Intelligence Agency, top officials, and international cocaine trafficking went completely non prosecuted in the wake of Iran Contra..it might be the reason that the American public didn't care that in the following years,neither the sitting president nor his opponent mentioned the affair –at all in the next election.  
 
-Itmight also be thereason that the American Public, its elected representatives and aCongressional Investigation failed to understand the graveimplications of obvious and documented financial, social, andoperational links between notorious domestic terrorists and two American President's and their employer.  It mightbe the reason that the public does not understand how damning theevidence is, relegating it to “fringe conspiracy theories.”  Theactions of the Office of the President on the morning of 9/11 showedclear foreknowledge ofthe attack, the terrorists were linked financially to the Bush familywho had just met with a top Islamic financier, the airfield whichtrained the suicide pilots is directly linked to the CentralIntelligence Agency.  Hundreds of investors made obvious andprofitable short sales against the airlines, insurers, and occupantsof the World Trade Center in the days before the attack.  Mindcontrol may also explainwhy nobody realizes that both Bush President's started wars in Iraqin order to steal oil,and artificially inflate its price.
+It might also be the reason that the American Public, its elected representatives and a Congressional Investigation failed to understand the grave implications of obvious and documented financial, social, and operational links between notorious domestic terrorists and two American President's and their employer.  It might be the reason that the public does not understand how damning the evidence is, relegating it to “fringe conspiracy theories.”  The actions of the Office of the President on the morning of 9/11 showed clear foreknowledge of the attack, the terrorists were linked financially to the Bush family who had just met with a top Islamic financier, the airfield which trained the suicide pilots is directly linked to the Central Intelligence Agency.  Hundreds of investors made obvious and profitable short sales against the airlines, insurers, and occupants of the World Trade Center in the days before the attack.  Mind control may also explain why nobody realizes that both Bush President's started wars in Iraq in order to steal oil,and artificially inflate its price.
 
 I'm not even going to mention the fact that the Intelligence arm of USA has the ability to remotely control electronics, and could have landed the planes peacefully themselves.
 
-Several large and well known Congressional investigations were probablyeffectively shut downbecause of the use of mind control, notably: Church, Tower, Warren,Rockefeller, and the 9/11 Commissions.  Please open your eyes,freedom and democracy have been hanging in the balance for the lasthalf century, and they are losing.
+Several large and well known Congressional investigations were probably effectively shut down because of the use of mind control, notably: Church, Tower, Warren,Rockefeller, and the 9/11 Commissions.  Please open your eyes,freedom and democracy have been hanging in the balance for the last half century, and they are losing.
 
-Effectively shut down,by the way is intelligence parlance for transferring a program todefense contractors and/or organized crime... just ask StanLee.
+Effectively shut down,by the way is intelligence parlance for transferring a program to defense contractors and/or organized crime... just ask Stan Lee.
 
-I think I'm a funny person. But I also realize that without inflection and personal presentationit is sometimes difficult to convey humor on a medium such as theInternet.  So to be more clear I have italicized what I intend to be intentional humor in this post.
+I think I'm a funny person. But I also realize that without inflection and personal presentation it is sometimes difficult to convey humor on a medium such as the Internet.  So to be more clear I have italicized what I intend to be intentional humor in this post.
 
 Mind control might explain how 1984 came and went and nobody thought it had come true.
 
@@ -131,7 +131,7 @@ Or.. we might just all be morons that don't care about freedom, truth, and justi
 
 The worst of it,  we could all be doing so much better.
 
-##Predestination
+## Predestination
 
-##Eyes to See
-##The Vulcans
+## Eyes to See
+## The Vulcans
