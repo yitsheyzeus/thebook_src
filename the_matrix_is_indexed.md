@@ -1,3 +1,8 @@
+---
+layout: default
+title: The Matrix is Indexed
+author: Adam Marshall Dobrin
+---
 # The Matrix is Indexed
 
 
