@@ -20,6 +20,7 @@ Through idioms, music, and movies God reveals his influence over the course of h
 With the Second Coming, he changes the world forever.  
 
 ## The Revelation of Adam
+
 The Holy Bible is a [prophesy whose details predictively chronicle the *second coming* of Christ.  It was once a map to the future, but it has become our present.  Specifically the story of the Exodus and the Gospels of Christ are abstract representations of the post 9/11 world, and my life.](behold,_the_burning_bush.html)  These stories are filled with vibrant allusions to modern persons, places and ideas. 
 
 For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of [proving the existence of time travel](behold,_the_burning_bush.html); and a microcosmic look at the "Biblical" relationship between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."  The name Exodus refers to [Oracle Corporation, or period table, and Linux... this is *real light*.](behold,_the_burning_bush.html#LIGHT)  It shows not only that the Bible was written about this time period, these few years, but also that this unsealing is *meant to be done right now*.  It refers to modern technology, science, and our culture.
