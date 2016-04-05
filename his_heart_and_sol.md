@@ -5,7 +5,7 @@ author: Adam Marshall Dobrin
 ---
 # His Heart and SOL
 
-{% if gitbook.generator == "website" %}
+{% if 1 %}
 
 <iframe width="854" height="480" src="https://www.youtube.com/embed/bK463fcJebI" frameborder="0" allowfullscreen></iframe>
 
@@ -18,7 +18,7 @@ Through the lyrics of rock and roll, He speaks a woven message that ties ancient
 
 The light shines clearly from the Menorah, which is the lamp that lights the eight crazy nights; it's a question, one that ties directly to the ['Sang' Rael](holy_water,_sang_rael.html)'s elucidation of the two letter key "AH."  With this addition, it's clearly a question that echoes through history to the **S**ons **o**f **L**iberty, Men.. or **A**ll **H**umanity?  It's a critique, one that isn't so obvious at first, but eventually proves that these particular names were chosen very specifically.  
 
-{% if gitbook.generator == "website" %}
+{% if 1 %}
 <iframe width="854" height="480" src="https://www.youtube.com/embed/8lMOL7GaPWI" frameborder="0" allowfullscreen></iframe>
 {% endif %}
 
