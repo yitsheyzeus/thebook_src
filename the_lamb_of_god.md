@@ -1,3 +1,8 @@
+---
+layout: default
+title: The Lamb of God
+author: Adam Marshall Dobrin
+---
 # The **Lamb** of God... Is**Lam** {#GAS}
 *The **Lamb** of God* explained, it's a connection between the sacrificial Pescach Lamb in Exodus, to the Lamb of the Marriage of Revelation, and a word and idiom of our modern day.  "**Lam**," like "*on the run,*" and there's hidden message in our music and movies which highlight the already bright connection between the word "Islam" and the eventful trip around the country... where you might say God and I *Ko**ran***.  (For the blind, that's co-ran.)
 
