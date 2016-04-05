@@ -1,3 +1,8 @@
+---
+layout: default
+title: He Laughs, again
+author: Adam Marshall Dobrin
+---
 # He Laughs
 
 The story of Isaac's near sacrifice is highly commented on in the Zohar, the book of Jewish light.  It shows a significant amount of humor and sarcasm associated with some sexual innuendo that also links Isaac to Adam in Eden.  The name Isaac means "he laughs" in Hebrew, though there is not much for him to be laughing at upon first glance.  The Zohar also dates the date of the attempt on his life to his 37th year, much later than most people think; and directly in line with the time frame that is generally accepted for the Crucifixion.
