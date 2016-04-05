@@ -1,3 +1,8 @@
+---
+layout: default
+title: AD on I'm Single
+author: Adam Marshall Dobrin
+---
 # I'm Single
 
 None of the patterns that link together our cultural art into a Matrix of Biblical light are more intricate than the one that is designed to introduce the Messiah.  Bridging *The Fifth Element* with Shakespeare tied together with the *The Hand of God* yields the key to a "Cypher" that ties the Holiest number of all, 14, to Adam Dobrin.  This is the place that tells us Sinbad is made up of two elements, one letter ("n") and one person.  All indexed and tied together by The Fifth Adam.  It's the answer to the movie, and Shakespeare's question.  Not "What is the Matrix?" but rather "To B or not to Be?"
