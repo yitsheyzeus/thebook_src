@@ -75,6 +75,7 @@ No we didn't light it
 ## Mary and the Whymar Republic
 
 In language, "mar" is **sea** in Spanish, there's significant Biblical correlation between Spanish words and hidden meaning, like [Navidad and Christmas](the_letter_why.html) and the names [Jesus and Elisha.](the_tower_of_babel.html).  It's about the *Bride of Revelation* being *All Humianity* allah the "sea" and "ah."  All three of the names that make up the sea of Revelation are rough descriptions of "everyone," the Spirit of God, everyone, and the planet.  The **SEA** of Eden begins to reveal how **family** is related to the *waters of the deep.*
+
 ```
 From the S E A of Eden, to the S E A, the multitude of Revelation.
          e v d                 H V l
