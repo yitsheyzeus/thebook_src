@@ -1,3 +1,8 @@
+---
+layout: default
+title: The Encl
+author: Adam Marshall Dobrin
+---
 # The Encl
 
 God is superstitious, he doesn't like the number 9, or the word end.  [Asherah he asks?  Ha'meforash.](hamd.md/he_laughs.html) is God's reply.  Thats the name of his "girlfriend," in ancient Hebrew religions, and its a question... ["Ash or All Humanity?"](holy_water,_sang_rael.html)  Who to save, right in his name.  The holy name, Ha'me-for-ash.  (for those of you that don't [get the "Ha"](hamd.md/he_laughs.html) it's saying he's not for burning the universe (he created) to ash.)
