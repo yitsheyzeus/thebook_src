@@ -1,3 +1,8 @@
+---
+layout: default
+title: The First Word
+author: Adam Marshall Dobrin
+---
 #What if the Apocalypse begins with one word?
 It does, actually.  The single word that begins a real holy fire is the word for Holy Fire itself, **ha'esh.**  This is the apocalypse, for real, and if you take the time to think about what is being presented here you will see religion in an entirely new light.  What I have is the true and correct Revelation of Jesus Christ: that the book of Exodus is designed to prove that the Holy Bible is a message sent to us, through time... from our future.  It is designed to prove as much, and bring us out of a kind of slavery that we don't really understand yet, but soon will.  We are the slaves in Egypt, to lies and deceit that are about to be lifted like a bright sonrising on the dark night.  
 
