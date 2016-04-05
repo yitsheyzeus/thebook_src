@@ -240,7 +240,7 @@ In EVERYTHING.
 
 JC obvious shares his initials with Jesus Christ.  "Et tu brute" the story of his demise is a close parallel to that of Christ and Judas.  
 
-#Secret Samadhi
+# Secret Samadhi
 
 A real live nephew of my Uncle Sam, born on the day of the Immaculate Conception; Samael and Samson tie together to tell me clearly that "Sam, I AM" is about the cuisine in the Broward County Jail, *green eggs and ham.*  Nearly every, day by the way, a processed cold cut of turkey... that looks like ham, for breakfast and lunch.  Nearly as bad as the worst jail I've ever seen; in another country, which served rice and some chicken soupy stuff on top twice a day.
 
