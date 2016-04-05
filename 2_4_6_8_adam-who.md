@@ -1,3 +1,9 @@
+---
+layout: default
+title: Adam Who?
+author: Adam Marshall Dobrin
+---
+
 # 2 4 6 8 Adam-Who
 
 ##What goes up must come down?
