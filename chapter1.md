@@ -102,5 +102,3 @@ Wake up, Menorah is God's answer, the question is [His SOL.  That's for Sons of 
 ##So is it Save I Or... what?
 Save the cheerleader, save the world; from *Heroes.*  Now, we find out that the messiah needs some saving too.  I'm having a hell of a time with the law and government in Fort Lauderdale, it's almost as if I'm living in the [times of the Crucifixion.](the_lamb_of_god.html)
 
-
-{% include "./footer.md" %}
