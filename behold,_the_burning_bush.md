@@ -1,3 +1,8 @@
+---
+layout: default
+title: The Burning Bush
+author: Adam Marshall Dobrin
+---
 # We are in Exodus
 
 The stage is set.  All around you fancy props, things like Presidents and asteroid belts are being made to mirror Biblical concepts and confuse you into thinking that we could be living inside a storybook.  George W. Bush is the burning bush.  Ceres and it's recently found ice is the water Moses extracted from the side of a mountain, to bring us out of the desert of Earthbound loneliness to a place where the possibility of interplanetary colonization is in sight.  Of course, [there are caveats.](./outside_of_heaven.html)
