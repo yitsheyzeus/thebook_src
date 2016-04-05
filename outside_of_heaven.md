@@ -1,3 +1,8 @@
+---
+layout: default
+title: Outside of Heaven
+author: Adam Marshall Dobrin
+---
 # Outside of Heaven
 
 In **The Pretty Reckless'** song "Absolution" Taylor sings that we are *"outside of Heaven, but I could be wrong."* Personally I think she is wrong, that we are in Heaven as the Lord's prayer (or at least an alternative reading of it) indicates.
