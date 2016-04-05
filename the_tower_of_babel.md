@@ -1,3 +1,8 @@
+---
+layout: default
+title: The Tower of Babel
+author: Adam Marshall Dobrin
+---
 # **In Genesis** ... at The Tower of Babel
 ###Religion teaches us that God created language, here, at Revelation I am showing you how it proves as much.
 
