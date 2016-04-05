@@ -1,6 +1,7 @@
 # Summary
 
-* [Introduction](index.md)
+* [Introduction](README.md)
+* [Preface](index.md)
 * [Ha'esh and Ai](chapter1.md)
 * [Behold, the Burning Bush](behold,_the_burning_bush.md)
 * [Expect the Unexpected](the_story_of_exodus.md)
