@@ -31,10 +31,10 @@ This question, of whether or not we are actually *in* Heaven relates to Virtual 
 
 It's an important question, one which I do not know the answer to, but I believe the word "yetser" for formation in Hebrew and *Ender's Game* by Or**son** Scott Card indicates we are currently in a Heaven-like place.. only without the social structure that a true utoptia would have.  Ender's Game, if he is a messianic figure, might indicate that once we have achieved this leap to a better society, we will be "written in reality," as I have thought since learning of this question.
 
-##Is space the final frontier
+## Is space the final frontier
 Or are we living in a Hollywood basement?
 
-##Mars
+## Mars
 There's a pool at NASA, where spacesuits are tested.  Astronauts know they are in the pool.  If we are inside of Heaven, and they care about the truth, our input, and actually building a true Heaven... we need to know the answers to these questions.
 
 ```
@@ -45,7 +45,7 @@ Dave Matthews Band
 
 Four races, all bi-pedal, *Sim*ian in nature.. ten fingers and two limbs.  The link to binary, 10 is 2 in that base conversion, and our modern computing structure is uncanny.  The idea that we may be designed by the [*Two of Everything God*](the_light_of_heaven.html) to appear to be a perfect computing allusion, is interesting, to say the least.  
 
-###Meanwhile were these races actually in existence in reality, there is no *fucking* way that they did not all have a common point of origin... Earth.
+### Meanwhile were these races actually in existence in reality, there is no *fucking* way that they did not all have a common point of origin... Earth.
 
 So how could this have happened?  4 divergent civlizations, Romulan, Vulcan, Ferenghi and Klingon.. all from Earth?  It's a sad story, about why we need to ensure that communication is kept with our children, colonies formed in the future.  A warning, not to lose touch, and then forget where you came from.  We come from the planet at the beginning of time, the point of origin of life itself... in the future, who will remember?  More importantly, who has already forgot?  Father of Heaven, and life, we are. (Do I sound like Yoda?)
 
@@ -69,7 +69,7 @@ Adaluncatif is “English,” Adam un-cat-if. It’s a messiah reference, the un
 
 [The two wounded by A and A is a reference to 9/11 and the two WTC towers.  A&A, American Airlines, go figure.](chapter1.md)
 
-##On the Tau'ri, and Alpha Cen**tauri**
+## On the Tau'ri, and Alpha Cen**tauri**
 
 Why do the Ancients refer to their child race, ours, as Tau'ri? Is it a link to *The Last Starfighter*, or perhaps *Flight of the Navigator?*
 ```
@@ -84,7 +84,7 @@ From the Fifth Adam, He-man, and Fival, the mouse on the ship that is sailing to
 
 Mooo.
 
-###Oh well, [*Back to the Future.*](index.html)  One more time around...
+### Oh well, [*Back to the Future.*](index.html)  One more time around...
 
 ```
  Come and see
