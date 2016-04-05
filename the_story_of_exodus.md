@@ -3,7 +3,7 @@ layout: default
 title: Expect the Unexpected
 author: Adam Marshall Dobrin
 ---
-#Expect the Unexpected
+# Expect the Unexpected
 
 I used to think that everything in religion was going to deliver us a map of a future past, that every story was a metaphor for a path away from the desert that was being stuck in one place and time with no hope to really reach *escape velocity.*  In this word the *water* that is Biblically related to the *coming of age* of Jacob and his crossing the river Jordan was about our collective need to pass through a barrier at sea--only... in space.  Through my period of awakening, one which took me from a little lion cub sleeping in a Jungle of madness to a man fighting desperately not to relive his past future... I experienced the lives of the past Horsemen of the Apocalypse through what I can best describe today as a waking dream.  I received story after story of exactly what happened the last time we left Earth, what we encountered and the ups and downs that ensued. 
 
@@ -44,21 +44,21 @@ It's probably important to [see *why* there is a meaningful relationship between
 
 Baptized in water... for repentance; this is God's message and command to ensure that Civilization is saved, not just the "elect."  We are at a crossroads, one which we have traveled before, and this message is here for a reason.  We aren't always right.
 
-##The Power of the Son
+## The Power of the Son
 You might notice now that my mythology is already linking Kal-El and Christ together with the stories of Moses and songs of today in a way that sets this home in a small town in Kentucky as the first and only real *Fortress of Solitude* I would ever reside in.  I was alone in this place, knew nobody in Bowling Green, and the information transfer that was about to take place had a significance that was lost on me--even after hearing a voice in the sky.  You might also notice that the name Kentucky includes both the last name and the initials of Christ's secret identity, also lost on me until only a few short months ago in 2016 when I first began writing down this Revelation in a confinement that clearly to me linked the Mountains of Sinai and Prometheus' bondage to the captivity that held Napoleon after he had lost his war.  Of course, I knew Hercules was coming.  You will remember that it was an Eagle attacking Prometheus, and I will point out once again that there are a number of other hidden references to America is ancient mythological names like "Pro-me-the-US" and MEDUSA.  
 
 It's more than just receiving superhuman strength from the light of our Son that tie Clark Kent to Sampson, there is so much Biblical imagery which ties the story of Superman to our Second Coming that it's surely going to be just as obvious to you as it is now to me that this connection is part of God's hidden message, that he is secretly influencing our art and modern myths to link directly to these ancient stories.  I've discovered a clear language hidden in names; and these ancient or fictional places are--to me--not in space but in a hidden map of Time.  Here and now we are about to cross the River Jordan together by understanding the clear and defined relationship between that name, Jor-El, and the Biblical Noah.
 
 The connection between the Ark of the Covenant, Noah's, and Krypton might not be clear at first; but this appears to me to be God's mythology regarding the days of Noah.  An impending disaster caused both the Flood and the voyage of little Kal-El, and within the Ark it is the power of the Son that gives new strength to an old story.  "J" is for Jesus, and less clear is the question that Jor-El's name asks, are you the "Father" or the Son?  El is an ancient Hebrew name for God, and both the name of Jacob's river and Superman's father echo of of a question that is unambiguously central to the theme of the Second Coming.  It's about the book of Daniel, and blame.  In order to cross this great river in time, we must put down a need to find blame, for nations (as Daniel clearly marks the Beasts) or people; and realize that we are all part of a story that shows us we have been sleeping in the Jungle together, unaware of the destiny we were about to fulfill.  
 
-##The Bright A.M. Star
+## The Bright A.M. Star
 Back then it was the fact that hidden metaphor in the names of people like ADAM and EVE linked to Biblical time, to morning and evening, that really intrigued me... it assured me that whatever it was that was happening to me was divine will.  I wrote about Adam and Eve rocking around the clock; and boy was I sure that I had the secrets of the desert speaking through me all those years ago.  It was the beginning of seeing how Eden and time travel were inextricably linked, not only to the Judaic theme of evening before morning (as the days of Judaism clearly show) but also to the idea that the night and the storms of Exodus are about walking in a wilderness of understanding--not knowing how much religion and time are linked.
 
 No sooner was the man and his name screaming that **A**fter **D**ark it is **A.M.** that **eve**rything changed from the dark first evening to "Adam and **Eve**ryone.  It's the beginning of the Holy Grail, a theme that pervades from Genesis to Revelation and shows us that the space-aged theme of the sea is not about voyaging into the abyss, but rather into seeing that the light of the Universe is here... in our sea.  [The multitude of Revelation.](holy_water,_sang_rael.html)  Hidden in not just names, but also in the idioms of our time is the key to understanding: *a blessing in disguise* the First Plague of Egypt turns water to blood--*thicker than water*--and the small trinity of a sea in Eden to the large family of Jesus Christ.  The Blood of the Grail.  *From the Ends of the Earth* the chalice that holds that blood turns from Earth to Heart; simply by moving an "h" from the end to the beginning.  For Heaven, Hebrew, Saturn's sign, and for Home--these are my 4H's that show us that *home is where the heart is*.
 
 Through idioms we see that our culture and this story are intertwined, that His intent is to show us that we are created, and that the plan of Salvation certainly includes not only verifiable but awe striking proof that we are journeying together into the Promised Land of Joshua.
 
-#The Story of Exodus
+# The Story of Exodus
 
 As we've seen in the light of the name Exodus, reading names (and now books) backwards is a huge hidden theme in the Revelation that is before you.  From Exodus being "sudo xe" and thus *let there be light*, we find a key that links the Rod of Christ to The Doors of Jim Morrison, and the key story that links the Salt of the Earth of Matthew 5:13 to the story of Lot and his Wife... which might imply that the Rod of Christ is God's Anima--linked to the music of our age through TOOL.  Soon I will show you the meaning of J, N, and the little o that graces the name of Nero--our historical counterpart for the fiddler who weaves this story into music for us to hear, and see.
 
@@ -74,10 +74,10 @@ Like *water*, **Light** has a dual meaning in the mythology of this story, and t
 
 True *Biblical Light* is what graces the pages of Holy Scripture, it is a truth that changes with the throes of time and chance, to become more clear and more useful as our civilization evolves.  Stories that once guided the development of society now become a path to the future--as we begin to see that the original purpose of this Light is to ensure that we are not left in the dark.  
 
-##Ender's Game, the Ewok, and Pan's Labrynth
+## Ender's Game, the Ewok, and Pan's Labrynth
 >“I am the cat with nine lives. You will not prevail against me.” -Nancy Farmer, The Lord of Opium
 
-##The Iron Rod of Mars
+## The Iron Rod of Mars
 
 ![](terraforming_mars_by_william_black-d6hnk8q.jpg)
 
