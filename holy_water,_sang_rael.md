@@ -7,13 +7,13 @@ author: Adam Marshall Dobrin
 
 I call this the Holy Grail not particularly because of what it is, which is a sort of re-visualization of Creation itself as the chalice that holds Christ's blood; but rather because of how it does this.  It completely re-conceptualizes what "Creation" means, and does an amazing job of not only showing us that there is a grand design that unifies all religions... but that this design is meant to be revealed to us.   It's a great example of a perspective shift, one that takes us from a world on the brink of completely disbelieving that God even exists, left alone interacts with us; to a place where it becomes clear that not only is this interaction *constant* the relationship between God and humanity becomes a defining characteristic of who we are.  So the grail is not so much the descriptive pattern, the message you are about to read about, but rather the shift in your world-view that comes from understanding it.
 
-{% if gitbook.generator == "website" %}
+{% if 1 %}
 
 <iframe src="https://player.vimeo.com/video/156698154" width="700" height="402" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen> </iframe>
 
 {% endif %}
 
-> ###[http://vimeo.com/yitsheyzeus/genesis](http://vimeo.com/yitsheyzeus/genesis)
+> ### [http://vimeo.com/yitsheyzeus/genesis](http://vimeo.com/yitsheyzeus/genesis)
 > This video is a visual and musical representation of what I am explaining here, it might help... to read this chapter thoroughly.
 
 
@@ -23,14 +23,14 @@ By "Us" I mean our generation, the people of the Earth of [post 9/11 America,](b
 
 ![let there be light is "sudo xe"](let-there-be-light3.png)
 
-###Taking a step back, and looking at religion as if it were a message designed to be sealed up until now, it's words saved in time across millenium to find new meaning today shows the hand of a hidden designer influencing all of history.
+### Taking a step back, and looking at religion as if it were a message designed to be sealed up until now, it's words saved in time across millenium to find new meaning today shows the hand of a hidden designer influencing all of history.
 
 
 You can eventually see that all religion, and history, and language was written in order to deliver a message to our time, to you--right now.  I am going to show you how ancient words include references to English, to [modern concepts (like the "root" of David being the Linux God account)](chapter1.html), and to ideas that the ["actual authors" could not possibly have known about.](hamd.md/he_laughs.html)  This is *how* we see the hand of God, by realizing that despite the fact that the authors of the Old Testament could not possibly have understood the English words for "sea" and "family" that not only did God understand and know about them at the time of writing Genesis--he makes a huge point of proving that foreknowledge to us... here at the time of Revelation.
 
 > This change in "target audience" is one which is well pronounced in a re-reading of the story of Exodus, once you realize that the beginning of the fire of the Burning Bush is designed to [focus on an English word hidden within the ancient Hebrew for "holy flame."  That word is the parted "sea" of Moses, and in seeing that the entire story of parting a sea might come from the Revelation that English is hidden in ancient Hebrew... you might begin to see how "**Ha'esh**" quite literally starts a fire here and now](chapter1.html), about the story of Exodus being about "Us."  For what it's worth, there is a modern day event which also correlates to the Burning Bush, and [it is the inauguration of the eponymous President--who by speaking words of Ecclesiastes 9:11 months before the 9/11 attack answered a riddle that heralds the coming of Christ in Revelation.  This real-world Burning Bush is the Sign of the Son discussed in Matthew 24:30.](behold,_the_burning_bush.html)
 
-###*Ready or not, here I come.*
+### *Ready or not, here I come.*
 
 ```
 In the beginning God created the heaven and the earth.
@@ -45,7 +45,7 @@ Genesis 1:1-3
 
 It's in the very first lines of Genesis that this pattern begins to emerge, from the darkness.  You'd expect nothing less, I'm sure.  Here, in the very first words we see imagery of a mathematical fraction, the Spirit of God *hovering over* the waters.  I've shown you what I see off to the right, and this simple equation that ties *family*, *eve*, and *ah* together will soon be part of a much bigger illustration of hidden allusion in ancient words.  With ["Menorah" lighting the purpose of this Revelation,](his_heart_and_sol.html) hopefully you will see that God's message of equality and liberty is part exaltation of our history, and part reminder that we still are not fully free.  In a somewhat modern movie, we have a big hint to one of the most pervasive hidden metaphors in all of religion... *Soylent Green is...*
 
-##**Holy Water** is *people*
+## **Holy Water** is *people*
 
 This is a baptism, or at least what that concept metaphorically refers to, it's a shock with cold *water*, seeing that something so obvious has been hidden from the world *and absolutely nobody noticed.*  Our parted sea, over this proof of religion and the Second Coming itself leads us to  *walking on people* (wow) as a perfect example of how the hidden symbolism truly explains part of a hidden message--that the NT chastises Christ repeatedly for not *asking* the people ... anything.  [Stones to bread and *Mary's* "let them eat Cake instead" concur that the Last Supper might be hiding a hidden resentment of a lack of a menu.](bread_for_the_poor.html)  Christ walks on people to deliver this Revelation, it is my will--and His--to ensure that we do not lose the truth or our freedom.  There is no choice, hence, [*walking on water.*](im_single.html)
 
@@ -61,7 +61,7 @@ Gensis 1:10
 ```
 You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel*](https://adjkjc.gitbooks.io/time-and-chance/content/the_tower_of_babel.html).
 
-##He was holding a little scroll, which lay open in his hand. He planted his right foot on the sea and his left foot on the land. Revelation 10:2
+## He was holding a little scroll, which lay open in his hand. He planted his right foot on the sea and his left foot on the land. Revelation 10:2
 
 It might remind you of Paul Reverse's midnight ride, an American allusion to this dichotomy between land and sea that began in Genesis to link the ideas of water being people to this Revelation.  In Chapter 7, we see that before the Lamb's great multitude is a call not to harm *the land or the sea*, I hope it is clear that there are a significant number of additional verses which allude to the the "multitude" as being the sea; a great Holy Sea of people--we are--one that is about to be parted by the firmament in the Heavens, the rooftop which Nero "sings" and fiddles from... to start this fire *below.*
 
@@ -72,7 +72,7 @@ We didn't start the fire
 No we didn't light it
 ~~But we tried to fight it~~
 
-##Mary and the Whymar Republic
+## Mary and the Whymar Republic
 
 In language, "mar" is **sea** in Spanish, there's significant Biblical correlation between Spanish words and hidden meaning, like [Navidad and Christmas](the_letter_why.html) and the names [Jesus and Elisha.](the_tower_of_babel.html).  It's about the *Bride of Revelation* being *All Humianity* allah the "sea" and "ah."  All three of the names that make up the sea of Revelation are rough descriptions of "everyone," the Spirit of God, everyone, and the planet.  The **SEA** of Eden begins to reveal how **family** is related to the *waters of the deep.*
 ```
@@ -120,15 +120,15 @@ Revelation 7
 
 And so, walking on water, the Lamb gives you a little scroll.
 
-###The First Plague, now a *Blessing in Disguise* shows us that Exodus is truly designed to deliver this message, along with our modern culture--through our idioms, music, and purpose.
+### The First Plague, now a *Blessing in Disguise* shows us that Exodus is truly designed to deliver this message, along with our modern culture--through our idioms, music, and purpose.
 
-##At the foot of Mt. Sinai, a *miracle* is before you.
+## At the foot of Mt. Sinai, a *miracle* is before you.
 
 In the Plague of Water to Blood (from Exodus, a "Blessing in Disguise"), God shows us the plan of turning the multitude to the family of Christ.  *Blood is thicker than water* and "Peace Frog" show us that the Plagues and the world is being prepared to see that the story of Exodus is a tool--one designed to show us God's plan is ancient; hidden away in a story of a battle between a miracle and visual parlor trick.  The unearthing of this message is no parlor trick, it's not magic to see that this plan is laid out in Genesis, Revelation, and Exodus--nor that this might be the beginning of an acronym for the "GREAT HOLY LIGHT" that Dave Matthews *hungers for.*
 
 It's not as visual as Exodus depicts it, but it's more miraculous, and what it does for us is show a mastery of time, one that has been recorded in history and music--and is highlighted by religion.  It shows us that this revealing is a true purpose of the stories, and that a grand design exists--and an Architect.  Through our idioms we see that modern culture, too, is part of the design.  Through the evolution of language from Hebrew to English and Spanish, that all of history is part of it.  Through the books of the Holy Bible, the hand of the designer clearly shows us **this is the Apocalypse.**
 
-{% if gitbook.generator == "website" %}
+{% if 1 %}
 
 <iframe width="520" height="292" src="https://www.youtube.com/embed/oTTx2AY30rE" frameborder="0" allowfullscreen></iframe>
 
@@ -148,13 +148,13 @@ Dave J. Matthews, "Hunger for the Great Light"
 
 I call this message the Holy Grail, like the cup that contains Jesus' blood.  The cup is the Earth, when you see moving the "h" to the beginning makes it Heart.. a Heart filled with blood--the family of Jesus Christ.  
 
-###He will pitch his royal tents between the seas at the beautiful holy mountain. *Yet he will come to his end, and no one will help him.* -Daniel 11:45
+### He will pitch his royal tents between the seas at the beautiful holy mountain. *Yet he will come to his end, and no one will help him.* -Daniel 11:45
 
 It is here, between the seas of Eden and Revelation that the "royal" tent has always been; the place where the impersonal waters turn to family, and the true message of the Sang Rael ... 
 
-###that the [family of Adam](the_letter_why.html) is about *Lions in Eden,* family in their home...
+### that the [family of Adam](the_letter_why.html) is about *Lions in Eden,* family in their home...
 
-{% if gitbook.generator == "website" %}
+{% if 1 %}
 <iframe width="520" height="292" src="https://www.youtube.com/embed/nlcIKh6sBtc" frameborder="0" allowfullscreen></iframe>
 {% endif %}
 
@@ -207,7 +207,7 @@ Revelation 2:27
 
 I should [mention again, The Doors](behold,_the_burning_bush.html) are singing about the Plagues of Egypt.  Listen to ["Peace Frog," It's about *blood in the streets.*](https://www.bing.com/videos/search?q=peace+frog+the+doors&qpvt=peace+frog+the+doors&FORM=VDRE) A **blessing in disguise,** remember.
 
-###Doors, ***F***or ***e***veryone.  
+### Doors, ***F***or ***e***veryone.  
 
 The story goes that I said Jesus couldn't exist (as God was trying very hard to convince that I am), because **he** would *never **rule** for a thousand years with an Iron Rod*.  Being born in America, as Queen sings "**here we are,** born to be Kings." I changed my mind about the rod, when it became a key to the Doors.  This is a primary key to the [Sign of the Son.](behold,_the_burning_bush.html)
 
