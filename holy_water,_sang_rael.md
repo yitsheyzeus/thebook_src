@@ -86,6 +86,7 @@ From the S E A of Eden, to the S E A, the multitude of Revelation.
                                A N
                                H E
  ```
+ 
                                 
 Seeing the word SEA expand from Eden, just like the name Adam does--from a small microcosm to the whole of humanity is the beginning of the Hand of God tying the beginning of the Holy Bible to the end, across millennium in a way that only makes sense when you see the fruition of prophesy in English; the language of the Messiah--which shows us clearly that SEA is an acronym for the first unit family in Genesis, one which is elucidated at Revelation by the first line of Genesis 1--tying the Spirit of God to Adam and *Everyone.*  Through Jesus and Mary and El and Asherah, and nearly every Patriarchal couple we see a big hint: this is the "stuff" of the *marriage of Revelation.*
 
