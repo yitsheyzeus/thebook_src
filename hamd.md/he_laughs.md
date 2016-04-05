@@ -100,5 +100,3 @@ The Holy Grail begins by seeing the world in a new light, re-framing how we look
 This h could be short for Hebrew, which is the purpose of this chapter, to prove that Hebrew has been sent back in time from the future; and that religion documents this fact by highlighting all of these words beginning with h.  The symbol for the Planet Saturn, the God of Time also happens to be an h, with a cross... surely no coincidence.
 
 Within the chalice of the true holy grail, is not a drop of Jesus blood, but his whole family.
-
-{% include "../footer.md" %}
