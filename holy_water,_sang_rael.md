@@ -1,3 +1,8 @@
+---
+layout: default
+title: Holy Water, Sang Rael
+author: Adam Marshall Dobrin
+---
 # Holy Water, Sang Rael
 
 I call this the Holy Grail not particularly because of what it is, which is a sort of re-visualization of Creation itself as the chalice that holds Christ's blood; but rather because of how it does this.  It completely re-conceptualizes what "Creation" means, and does an amazing job of not only showing us that there is a grand design that unifies all religions... but that this design is meant to be revealed to us.   It's a great example of a perspective shift, one that takes us from a world on the brink of completely disbelieving that God even exists, left alone interacts with us; to a place where it becomes clear that not only is this interaction *constant* the relationship between God and humanity becomes a defining characteristic of who we are.  So the grail is not so much the descriptive pattern, the message you are about to read about, but rather the shift in your world-view that comes from understanding it.
