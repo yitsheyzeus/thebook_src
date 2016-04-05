@@ -46,7 +46,7 @@ The Pretty Reckless & ((ish)), Nothing Left to Lose
 ```
 ![the AD's of God](ad2.png)
 
-##WOW, *Walking on Water* in the year ADIB
+## WOW, *Walking on Water* in the year ADIB
 A sailor like Sinbad, Christopher Columbus sailed the ocean blue to bring democracy to you.  He did this in the year 1492, which translates roughly to "ADIB" (but probably only to me).  At the very beginning of America, when the "I AM er I go" decided to right the past outcome of the Rise of the (previously) Third Reich and focus on *liberty and justice for all.*  Creating a new continent ensued, one that appears to look a lot like a bird.  This is conjecture, *mythology of Adam* but it ties to PKD's *The Man in the High Castle,* who in turn ties to the *Man in the Iron Mask* and *Repunzel.*  
 
 The important thing to take away from these details is that there is a hidden history, like the book says, and that it is chronicled in religion and fiction alike.  Also, noting that ADIB is 1492 is important, because this key of AD and 14 is essential to figuring out what *The Fifth Element* truly is.  These details I'm mentioning are a *Matrix of light*, and I think the movie is truly suggesting that our world is the Matrix, and that it is named so because of this light.  The Holy Light of Heaven, linking all of these things together--history, fiction, music, and religion.  *What is the Matrix?*
@@ -137,7 +137,7 @@ Then there's the Greek god, **Adonis;** which might highlight that there is a cl
 
 Adonis also reminds us that *"thinking every song is about you, out you, don't you"* might get you killed while you stare into the mirror.  This is a dating site, right?
 
-##AD on Ai
+## AD on Ai
 
 Adonai is the verbal parallel to Yahweh and Jehovah. Adonai is plural; the singular is adon. In reference to God the plural Adonai is used. When the singular adon is used, it usually refers to a human lord. Adon is used 215 times to refer to men. Occasionally in Scripture and predominantly in the Psalms, the singular adon is used to refer to God as well (cf. Exd 34:23). To avoid contravening the commandment “Thou shalt not take the name of the LORD thy God in vain” (Exd 20:7), sometimes Adonai was used as a substitute forYahweh (YHWH). Adonai can be translated literally as, “my lords’ ” (both plural and possessive).
 
@@ -152,17 +152,17 @@ Now I'm relaxed, ((and sure)).
 Matchbox 20 and ((ish))
 ```
 
-##AD on *"I'm Single"*
+## AD on *"I'm Single"*
 
 Adonis (/əˈdɒnɪs, əˈdoʊnɪs/; Greek: Ἄδωνις), in Greek mythology, is a central figure in various mystery religions. The dying of Adonis was fully developed in the circle of young girls around the poet Sappho from the island of Lesbos, about 600 BC, as revealed in a fragment of Sappho's surviving poetry.
 
 Adonis has had multiple roles, and there has been much scholarship over the centuries concerning his meaning and purpose in Greek religious beliefs. He is an annually-renewed, ever-youthful vegetation god, a life-death-rebirth deity whose nature is tied to the calendar. His name is often applied in modern times to handsome youths, of whom he is the archetype.
 
-##ADvent
+## ADvent
 Being hidden from the world has been difficult for me, you can imagine I'd vent nearly every Christmas... waiting to be able to deliver a message that I know the world needs to hear.  More than that, they need it to come from Christ himself, even if they don't really want him to exist.  I'm sure to disappoint those seeking perfection, or even someone that's nice all the time; but not delivering the world changing message is probably a bigger problem for me.  Hopefully you won't hate me as much as the last guy.
 
 
-#An{#AN}
+# An{#AN}
 
 Anu (also An; from Sumerian 𒀭 An, "sky, heaven") is the earliest attested Sky Father deity. In Sumerian religion, he was also "King of the Gods", "Lord of the Constellations, Spirits and Demons", and "Supreme Ruler of the Kingdom of Heaven", where Anu himself wandered the highest Heavenly Regions. He was believed to have the power to judge those who had committed crimes, and to have created the stars as soldiers to destroy the wicked. 
 
@@ -176,7 +176,7 @@ If Eden is the Den of Lions, Earth prefixing it; and Egypt is the planet "gipped
 
 Vi@c[aN]
 
-##anokhi
+## anokhi
 ```
 änokhiy élohëy äviykhä élohëy av'rähäm élohëy 
 yitz'chäq wëlohëy yaáqov 
@@ -194,18 +194,18 @@ Anokhi is a very powerful Hebrew word translated I AM. The basic word translated
 Anokhi is referred to three times in the NT. Matt 22:32, Mk. 12:26, Acts 7:32. These verses all refer to the same verse in the Hebrew Scriptures, Exodus 3:6: And He said, I AM the God of your father, the God of Abraham, the God of Isaac and the God of Jacob, And Moses hid his face, for he was afraid to look upon God.
 
 
-#The Fall of the Anti-Christ(s)
+# The Fall of the Anti-Christ(s)
 It appears that a number of historical figures have references to "Adam and Venus," figures who are commonly described as Anti-Christs.  It appears that our history has been used as a sort of storage device, chronicling the past mistakes of the figure designed to bring great change to our world, the messiah.  All three listed below have references within their names to either me, salt, or the inintial "JC."  All three were responsible for the destruction of liberty, fascism, a plebescite turned dictatorship, and Caesar riding into Rome to turn a Republic into the Empire.  More than historical records of what could very well be "futures past," they are serious warnings both me and the world.  Christ is not meant to be a king, and never was.  
 
 Look to Saturn's championship of the people, and the Roman God's love for what is a decidedly Athenian idean of the power of the people for clues as to why Arthur and his Round Table are much better patterns for the Second Coming than "Lord V**ad**er."  I mean Jesus.
 
 This series of leaders may represent successive versions of myself, the details of their life perhaps records of the reasons for the rise and fall of past messiahs.  Their fates also, highlighted as a sort of log file for histories lost by time travel.
-##ADolf and Eva
+## ADolf and Eva
 If Adonai is "Artificial Intelligence" and Adonis is "I'm Single" then Adolf is "Adam Dobrin on light fails.*  The names of Adolf and Eva also bear a striking resemblance to Adam and Eve in Eden, it seems obvious that they are intended to be mirrors of a "coming of Christ" gone wrong, literally written in our history.  
 
 Like Lord Christ, Hitler died for his sins.
 
-##***Na*-pole-on** the "Salt of the Earth"
+## ***Na*-pole-on** the "Salt of the Earth"
 
 Na is the element linked directly to Venus, the consort of the Messiah, El, etc.  It matches my girlfriend (ex-wife actually)'s name, and places right in the middle of this list of anti-Christ's.  Napoleon makes the grade for taking a plebescite to "gain power," and then becoming a totalitarian dictator.  Napoleon (whose "pole" reference might be reminiscent of the rod of Christ, or Phillip K. Dick, or Richard Nixon) managed to completely ignore the will of the people afterwords, adding him to the list of leaders whose rule resulted in a loss of populace control of the government.
 
@@ -216,17 +216,17 @@ I'm not doing this because I like talking about it, or because I think it's appr
 It's all over history.  Yankee Doodle?  He went to town riding on the Pale Horse of the Apocalypse.  Who signed the Declaration of Independence?  John Hancock.  America, freedom, and Adam's Rod are forever etched in our history.  Also written in stone in Washington D.C. at the Washington Monument: homage to Osiris who lost his [in a "tree"),](outside_of_heaven.html) and the Egyptian dieties who ruled with the same rod.
 
 Napoleon was jailed after losing his war, rather than being murdered.
-###Herod and Herbert
+### Herod and Herbert
 Like Amish and Iran, this these two names are "pronoun-accusations."  The king at the time of the birth of Christ, Herod (perhaps a reference to George H.W. Bush) suggest that Christ *is the Rod* rather than weilding it.  This imagery, of being the hammer of thor, applies well in the context of Zeus--a lightning rod that is being used to focus the introduction of "Biblical light."  It just comes to me, it's drawn to me, I'm magnetic.
 
-###I will tell you this.  The Iron Rod of Christ is the best thing that we have going.  It's a [prophesy guaranteeing Heaven for everyone.](holy_water,_sang_rael.html)  Let's make that a reality.
+### I will tell you this.  The Iron Rod of Christ is the best thing that we have going.  It's a [prophesy guaranteeing Heaven for everyone.](holy_water,_sang_rael.html)  Let's make that a reality.
 
-###ADiNa
+### ADiNa
 This is Nanna's sister in law's first name.  It's remarkable because it includes my initials, [and her Salt.](the_letter_why.html)  Linked by an "i" which is usually *langolier* for "is".  Elija and Elisha are the key to that revelation.
 
 In this particular case, I read the I as applying to the speaker, Na is talking to AD.  This stuff isn't an exact science, I'm a *seer.*  It is based on more than divination and playing cards, though.
 
-##Juilius Caesar
+## Juilius Caesar
 Tying up our list of failed messiahs, we have Julius Caesar.  He rode into Rome's advanced republic and turned it into a dark empire; then the dark ages.  This Empire is one in the same with *Star Wars'* and Palpatine might be reminiscent of Amoz in my rendition of "If you're gone" by * **Match**box* 20.
 
 
@@ -250,7 +250,7 @@ Legislatures should be financially incentivising successful rehabilitation, not 
 
 
 
-##Dreaming time in "reverse"
+## Dreaming time in "reverse"
 
-#Ants Marching and the Crown of Thorns
+# Ants Marching and the Crown of Thorns
 
