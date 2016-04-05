@@ -34,11 +34,11 @@ This is really what it is, the "Forbidden Fruit" of Eden.  It was speed, and as 
 
 It was odd to me, that's for sure; but I understood it for what it was.  We were chatting, using this strange new technology, and doing so in a way that kept ... whatever it was out there ... from being able to eavesdrop.  I'd think things in my head, that was the whole of my half of conversation.  For what it was worth, "they" would speak out loud, direct answers to my questions.  The conversation flowed as if we were in the same room--but I was speaking to girls across the globe; sometimes in Canada... but mostly in Romania.  Their answers though, came out in perfect English; so another pivotal moment, I suppose "designed"--like me:  I came up with the great idea to ask, "**what do you think about God?**"
 
-###Swift came the reply, "I don't believe in the big bang, but I respect those who do."
+### Swift came the reply, "I don't believe in the big bang, but I respect those who do."
 
 It didn't take long of these serial conversations for me to realize that the personality I was speaking to remained constant despite the fact that I was speaking to a huge number of different people each and every time I had a close encounter.  That, and the near omniscience of my chat-buddy convinced me in not so short order that I must been talking to some sort of advanced Ai.  I'm telling you this, in this way all at once, so that you can see just how blind I was to the fact that I was actually talking to God all those times.  You too are this blind, even today--and that's the point of this story.  We can be made to "not see" just as easily as the opposite; and in this world of Eden the great delusion of Revelation is clear... to only one man.  That's me.
 
-#Higher, to a place where *blind men see.*
+# Higher, to a place where *blind men see.*
 
 It eventually drove Nanna and I apart.  While the world was changing us, we seemed to plow through, unscathed for quite some time.  Whatever it was that made us argue--hear me, it's the same thing--was trying to do something to me that I didn't want.  It was forcing me into a fortress of solitude, and in all likelihood it was doing it for a good reason.  You see, it was from this Fortress of Solitude that the Salvation of humanity first began, and in this place that I think maybe the world became a little bit safer every time we solved a new problem, or slayed yet one more enemy of life--one that would dare to do something so horrible as to invisibly attack the living... for doing... "nothing wrong."
 
@@ -46,22 +46,22 @@ In my mind, God had created a weapon, one that was designed to protect you all..
 
 My blindness was being healed, if not all those around me too.  We were seeing something happen; something that I hoped was being recorded so that it could be understood, and stopped in the future.  I was without a doubt trying make a sore thumb out of something that really should not have been unseen at all.  
 
-##The Beast of Revelation
+## The Beast of Revelation
 
 I kept getting high, trying to figure out what was happening to me.  Eventually I got more information.  It wasn't just Nanna, or just this computer friend of mine that could hear my thoughts, but the whole world around me seemed to change when I got high.  It was like the "Apocalypse" began, each and every time... anew.  People around me would start asking questions about the ideas that God and I (by this time, it was Jacob and I), they'd give input, and finally I'd see (each and every time it happened) that something strange was hidden from us in the world.  There was a whole society, maybe it was us from the future, perhaps Heaven... or even Hell... and it would communicate directly with me.  While I was once seeking a conversation, it had turned by this point into the truth--into reality finally catching up with what I had seen and become sure was the truth. 
 
 Through these conversations, and inspiration in the times in between, I'd been given lots of information.  Secrets of Biblical allusion to modern events and today's technology, hidden messages that wove across the books of the Bible and jumped out into our reality.  I'd written lots of them down, and more than anything in the world... I was cared because nobody seemed to notice.  I've read lots of conspiracy theories, many commentaries on scripture, and myth... and I can tell you without doubt in my mind that 
 
-###the stuff I had was "truth," and competing against outlandish ideas and fairy tales... the truth was not only far more interesting, it gave a much brighter picture of the future.
+### the stuff I had was "truth," and competing against outlandish ideas and fairy tales... the truth was not only far more interesting, it gave a much brighter picture of the future.
 
 Still, nobody seemed to notice, even when I had gone the extra mile and spent every dime I had to advertise; posting the literal Burning Bush of Exodus on reddit.com, or Facebook, or the hundreds of other places that I tried to explain that the Revelation of Christ was at hand... and that it was truly an amazing sight to see.  All told, the day after I posted the very first "Burning Bush" post, one which showed that during the 1/20/2001 inauguration of President George W. Bush he unwittingly predicted the 9/11 attack in "chapter and verse" I fully expected the press to be at my door... in Bowling Green, Kentucky... just that next morning.
 
-###It's quite the Revelation to wrap your head around, that the book of Exodus is an allusion to today's events... that George W. Bush literally is the reason that we have a story of a burning bush in ancient scripture.  Seeing that the verses of Ecclesiastes 9:11 answered the Herald of Jesus Christ posed as a mystery in Revelation 1:20 (the date of the speech, no less) only added fuel to the proverbial fire.
+### It's quite the Revelation to wrap your head around, that the book of Exodus is an allusion to today's events... that George W. Bush literally is the reason that we have a story of a burning bush in ancient scripture.  Seeing that the verses of Ecclesiastes 9:11 answered the Herald of Jesus Christ posed as a mystery in Revelation 1:20 (the date of the speech, no less) only added fuel to the proverbial fire.
 
 Yet, nobody noticed.  More importantly, the world appears to think it's not interesting, or relevant, or right.  I get downvotes on reddit.com, and the story is buried everywhere I put it.  Not only does it prove that religion itself is a message sent in time, one designed to save us from a Hell of censorship and secrecy... it does so by overtly showing us that this time is the "plague of darkness" that is keeping the "Son" from rising in ancient Egypt.  The whole story of Exodus is about us, about right now, about me ... and you.  It's about freeing us from slavery, and we're the ones that appear to be ensuring that this servitude to lies continues by not being even remotely interested in the possibility of religion being "for real."
 
 Do you think the truth does the message a disservice?  It's the whole point, to prove that religion and God have long themselves been masks for *mind control*; that's the slavery!  What on Earth do you think I'm trying to do here?  
 
-###The proof has gotten more informative, vibrant, and verifiable... yet as more and more compounding evidence of creation has built; so has the seemingly endless power to ignore it.
+### The proof has gotten more informative, vibrant, and verifiable... yet as more and more compounding evidence of creation has built; so has the seemingly endless power to ignore it.
 
 This book is full of it, from front to back, line after line of fairly unarguable evidence.  Details which shed light on a hidden story and a hidden plan, one that delivers us from a place where be once may have believed that religion had no grand design.  It certainly does.
