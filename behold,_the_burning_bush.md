@@ -11,26 +11,26 @@ What I mean to say is we have all been blind to the true meaning of scripture.  
 
 The Iron Rod of Christ and the Rod of Aaron are promised Doors from Earth to Heaven, a way to visit and return.  Their songs--the band--often revolve around the Plagues of Egypt.  Riders on the Storm, Peace Frog, and ... (come on, baby) Light my Fire... all Plagues.  The storm is a cloud of dust settling in the wake of a battle in time, one which has repeatedly changed the time line; except... we would never know.  Were it not for religion, a chronicle of round trips and rewinds, repeated attempts to save the world from destruction.  At this juncture, it's that time travel itself which threatens the safety of the future, if you think about it, that makes sense.  Religion is warning us to look sternly and searching back, and only move forward.  Cautiously, yet optimistically.
 
-##Succinctly, this is the Sign of the Son
+## Succinctly, this is the Sign of the Son
 *Behold he is coming on the clouds for all eyes to see. 9/11. 
 I saw an angel coming down from heaven, with a great chain in his hand. 9/11. I returned, and saw under the son... that time and chance happeneth to them all.*   All of these Biblical quotes are the Sign of the Son, imagery of flying things and terrible anger.  Realizing that they are all about 9/11, and the Bible proves as much through none other than President Bush.  Out his own mouth, just like the story of Exodus--word's of God coming out of the fire.
 
 The sign of the Son combines this amazing revelation, that the Bible presciently alludes to the attack, with a huge number of references to constructs of our modern culture.  Oracle Corporation, *unix commands*, and elements of the periodic table are just a few of the science and technology references that are directly made by this "sign."  It's impossible for them to be in the Bible, without time travel, truly knowing all about our culture way back then.  Still, they exist, and their inclusion in these ancient scriptures is for a reason.  The Bible itself is designed to prove that time travel technology exists.
 
-{% if gitbook.generator == "website" %}
+{% if 1 %}
 
 <iframe width="854" height="480" src="https://www.youtube.com/embed/PFQVCmbDgl4" frameborder="0" allowfullscreen></iframe>
 
 {% endif %}
 
-###Ecclesiastes 9:11
+### Ecclesiastes 9:11
 
 Bush quotes it on 1/20/2001; he answers the *riddle not asked* in Revelation 1:20.  Day and month link to chapter and verse.
 Ecc 9:11 lists the first 7 planets, from Mercury to Saturn and Uranus .. the messenger, time and chance.  
 
-###The 7 stars are (actually) the first 7 planets.  Details explained below.
+### The 7 stars are (actually) the first 7 planets.  Details explained below.
 
-##Linking Revelation and Ecclesiastes
+## Linking Revelation and Ecclesiastes
 
 Using the chapter and verse numbers of three Biblical passages to correspond to two pivotal dates in 2001, this Revelation predicts the 9/11 attack months before it occurred.  This information came to me several years ago, in bits and pieces; with the final key not being revealed until only a few months ago.  Each time a new piece of the puzzle was made clear, the web of co-confirming items made the whole stronger and stronger.  By the time you are finished reading, the significance of the passages will be undeniable.  The quote in Revelation is none other than the herald of Second Coming.
 
@@ -46,11 +46,11 @@ and the seven lampstands are the seven churches.
 
 This mystery is solved during the inaugural address of George W. Bush, on 1/20/2001.  It is an reverse anthropomorphism... a metaphorical representation of the Burning Bush event, witnessed by Moses... already linked to Christ and the fourth dimension in Matthew 3.  The solution is contained within the words that Bush speaks, another two Bible verses, though he immediately attributed them to John Page, who put them together hundreds of years earlier.  The solution is that the seven stars are the first seven planets, logically linked to their mythological deity; the lampstands are corresponding elements of the periodic table.  
 
-###Bush speaks, “We know the race is not to the swift nor the battle to the strong. Do you not think an angel rides in the whirlwind and directs this storm?" which is a rough combination of Ecclesiastes 9:11 and Revelation 20:1.
+### Bush speaks, “We know the race is not to the swift nor the battle to the strong. Do you not think an angel rides in the whirlwind and directs this storm?" which is a rough combination of Ecclesiastes 9:11 and Revelation 20:1.
 
 In what is without a doubt a visual description of the attack on the twin towers, Revelation 20:1 speaks of the Angel of the Lord himself, Death, holding the key to end Hades and that is exactly what the purpose of this work is.
 
-##"On the clouds," for all eyes to see. {#SON}
+## "On the clouds," for all eyes to see. {#SON}
 ```
 And I saw an ((airplane)) coming down out of heaven, 
 having the key to the Abyss and holding in his hand a great chain. 
@@ -89,13 +89,13 @@ Ecclesiastes 9:11, in its full version delineates each of the planets from Mercu
 
 Ecclesiastes 9:11
 ```
-##And God said "let there be light"{#LIGHT}
+## And God said "let there be light"{#LIGHT}
 
 The third reference superimposes over Earth, and the quote is “neither yet bread for the wise.”  The light of this statement is the periodic element Xe, for both an Oracle Database and the element responsible for camera flashes.  This is the location of our story of Exodus, and that whole word, taken in reverse speaks volumes.  In addition to “Xe,” the four letter command “sudo” is the Unix equivalent of “run as the God account.”  
 
 ![let there be light is "sudo xe"](let-there-be-light3.png)
 
-###“sudo xe” is the logical equivalent of “Let there be Light.”  Exodus in reverse; in Linux and chemistry.  Geek.
+### “sudo xe” is the logical equivalent of “Let there be Light.”  Exodus in reverse; in Linux and chemistry.  Geek.
 
 Towards the end Saturn and Uranus... the gods of Time and the Sky correspond to the final two references in Ecc 9:11... but time and chance happeneth to them all.  Uranus clearly links to the element Uranium, and also ties the story of the messiah on the run, the lamb of God (is lam) to the court battle which is referenced in the Book of Judges and the Trial of Jesus Christ.
 
@@ -105,11 +105,11 @@ Christ's Iron Rod juxtaposes the Rod of Aaron in the Egyptian story, and is furt
 
 For thousands of years the Holy Scriptures have been passed down from generation to generation, all the while holding within their secretive pages a message to 2016.  This message reveals technologies that are central to the creation of Heaven, things like mind mapping and time travel... it begins by setting the stage and proving that time travel exists and has been actively used in the creation of our civilization.  The book of Matthew links Moses and Christ through near parallel events, a microcosm of the 40 years in the desert and mounting of the peak of Sinai; days in the life of Christ.  This number 40 has been holy only to God (meaning secret), until now.  It is a homo-phonic reference to 4-D, the fourth dimensional wilderness that we currently are walking in.  The desert is one of lack of knowledge of the technology, and its possible uses for both good and evil.  It is the purpose of the Book of Exodus to help us end this dark period of wandering and find the light of the Son; ending the 10th Plague.  The stage is set, though, all the way in the Book of Revelation.
 
-{% if gitbook.generator == "website" %}
+{% if 1 %}
 <iframe width="854" height="480" src="https://www.youtube.com/embed/I2HXkzjq1lc" frameborder="0" allowfullscreen></iframe>
 {% endif %}
 
-##The Messiah of Sea to Shining Sea{#MOSES}
+## The Messiah of Sea to Shining Sea{#MOSES}
 There are other connections between Jesus Christ and Moses, which highlight a "problem" associated with the Tribulation.  *The "PH" problem.*  That's not a sexist remark, or about your pool; it's about ***The Pursuit of Happiness***.  Both Jesus Christ and Moses had "enemies," ones whose names began with "PH."  If you did not just say "I see," you probably need me to point out that the Pharoah and Pharisees names are nearly identical.
 
 This is the Tribulation, or at least my explanation of what is going on; there is a hidden war of mind control being waged, one which has made average people--doctors, lawyers, writers... the "scribes" of today into an enemy.  In some ways, we are all enemies of ourselves, forward progress, and change... something that is a big part of what I am doing here.  
