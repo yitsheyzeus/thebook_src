@@ -102,5 +102,3 @@ It is ((never)) done.
 
        Adam & ((ish))
 ```
-
-{% include "./footer.md" %}
