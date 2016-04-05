@@ -1,3 +1,8 @@
+---
+layout: default
+title: His Heart and SOL
+author: Adam Marshall Dobrin
+---
 # His Heart and SOL
 
 {% if gitbook.generator == "website" %}
