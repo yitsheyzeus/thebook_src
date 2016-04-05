@@ -74,7 +74,7 @@ documents the intrinsic relationship between Uncle Samael and the historical cre
 
 ```
 Five is Fourteen, the number of God.
----------------------------------------------------
+--------------------------------------------------
 
 Jesus replied, "Have I been with you all this time, 
 and yet you still don't know who I am? 
@@ -162,7 +162,7 @@ Adonis has had multiple roles, and there has been much scholarship over the cent
 Being hidden from the world has been difficult for me, you can imagine I'd vent nearly every Christmas... waiting to be able to deliver a message that I know the world needs to hear.  More than that, they need it to come from Christ himself, even if they don't really want him to exist.  I'm sure to disappoint those seeking perfection, or even someone that's nice all the time; but not delivering the world changing message is probably a bigger problem for me.  Hopefully you won't hate me as much as the last guy.
 
 
-# An{#AN}
+# An
 
 Anu (also An; from Sumerian 𒀭 An, "sky, heaven") is the earliest attested Sky Father deity. In Sumerian religion, he was also "King of the Gods", "Lord of the Constellations, Spirits and Demons", and "Supreme Ruler of the Kingdom of Heaven", where Anu himself wandered the highest Heavenly Regions. He was believed to have the power to judge those who had committed crimes, and to have created the stars as soldiers to destroy the wicked. 
 

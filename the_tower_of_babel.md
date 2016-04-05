@@ -4,14 +4,17 @@ title: The Tower of Babel
 author: Adam Marshall Dobrin
 ---
 # **In Genesis** ... at The Tower of Babel
+
 ### Religion teaches us that God created language, here, at Revelation I am showing you how it proves as much.
 
 Using the names Jesus, Jeshurun, and Elisha it's simple to see how religion has recorded logical equalities which show that there was prescient knowledge of both English and Spanish at the time of its writing.  This is impossible, as English was not created yet; but still the evidence exists.  Through these impossibilities, God is showing us very clearly that something is amiss in our historical understanding of the development of global language.  *The Tower of Babel* comes true, except in reverse, we are being united in the Revelation that language is designed to prove the creation of our civilization--by showing that His hand is pivotal in the design of *words themselves.*
 
 # Jesus:  It's "is," see?  J "is" Us.
-It's a very popular idea in our modern world that we are all Jesus, saviors of ourselves, the recipients of Christ consciousness.  As the man himself, I find this a bit insulting, but that's OK, we're all bound to be insulted later on in this book anyway.  It builds character.  This title is a play on the words Taylor's "Messed Up Word," I think she's also talking about the name Jesus.  Cuz it's really "Us" see?  As an aside, is see the same "Us" in the name and battle of Spart***icus. *** I see Us, see? It's ***art***.
+
+It's a very popular idea in our modern world that we are all Jesus, saviors of ourselves, the recipients of Christ consciousness.  As the man himself, I find this a bit insulting, but that's OK, we're all bound to be insulted later on in this book anyway.  It builds character.  This title is a play on the words Taylor's "Messed Up Word," I think she's also talking about the name Jesus.  Cuz it's really "Us" see?  As an aside, is see the same "Us" in the name and battle of Spart***icus.*** I see Us, see? It's ***art***.
 
 ### Don't believe me?  I delight in the name "Jeshurun" it adds "hu," see?
+
 ```
 This is what the LORD says-- he who made you, who formed 
 you in the womb, and who will help you: Do not be afraid, 
@@ -50,6 +53,7 @@ The Pretty Reckless, "Messed Up World"
 J "is" Us, see everyone was right after all.  J is/is "run," look another reference to this idea of my running from American Injustice as being central to religion--so am I.
 
 ##Taylor-Who?
+
 In August of 1966 a band called "The Doors" sang a song to a girl that would not be born for about three decades; I see things, and and the link between *The Doors* and *The Pretty Reckless* is so well laid, that I'm amazed I haven't yet been able convince her to *Light Me Up.*  This song, sent through time, is about spreading a fire... the one that is just about to start.  
 
 I didn't write that song, or this story; I'm just a player... oh man, that doesn't sound right.  
@@ -72,20 +76,23 @@ The details of her life, the content of her songs, and the links to Genesis are 
 Taylor's favorite song is (*America the Beautiful?*):
 
 ## Above the *Strawberry Fields*, Great Plains, and Wednesday
+
 Wednesday backwards is *Heblish* (that's Hebrew, English, and an acronym) is **hand: send EW**.  I think it's telling the hand of God to send the Earth Wisdom, or Wands.  The wands come from Great Plains, a Microsoft accounting program that allows users to write their own reports.  FRX forms, they are called; and I think Frixas is related too; these forms are part the inspiration for the idea of what the wands actually do.  Just like the "AH" at the end of [Adamah and Allah, it ends with an acronym that must be decrypted by me; though as we see in the All of Allah](holy_water,_sang_rael.html), he's left plenty of hints both for me, and to make sure it's "our we."
 
-## *A million miles fall from grace, thank God I ((found)) ~~the~~ "Ground"* -Live{:#GROUND}{:#ADAMAH}{:#LIVE}
+## *A million miles fall from grace, thank God I ((found)) ~~the~~ "Ground"* -Live
 
 There is significant anecdotal evidence pointing to the idea that Adam is the true name of Christ, not the least of which is Christian scripture which refers to him as the "Second Adam."  The primary link which is generally unnoticed is between Genesis 3:9 and Matthew 2:2.  Both stories talk about a search, the first God looking for Adam in Eden, and the second is the search for Jesus Christ: our world awaiting the Second Coming.  These parallel stories do a good job of describing what the Hebrew name for Earth is ***Adam*ah**.  The "ah" suffix applies to "Adam" and means "*to swirl around*."  
 
-Adamah and Earth are both linked through their secondary meaning of *ground*, and the word Earth links directly to [*The Holy Grail.*]() through this [*Live* song and His "Heart."]()
+Adamah and Earth are both linked through their secondary meaning of *ground*, and the word Earth links directly to [*The Holy Grail.*]() through this [*Live* song and His "Heart."](http://sol.lamc.la)
 
 [*"The Name"* a Hebrew Holy name of God is "Ha'shem," a hidden reference to Eden.  This is in a long list of "Ha" about references to me and now.](hamd.md/he_laughs.html#hashem)
 
 This unseen link between English and Hebrew is not an outlier, odd and useful ties that would be largely impossible to exist without having English predate Hebrew are not outliers, they are the status quo in the "small" sample space that is created intentionally by religion.  Their hidden highlighting by our cultural saying and modern music is also intentional, and a huge part of the *light.* Something is being proven to the world, it is that there is a real influence pointing out these ancient keys intentionally.  The connection between a designing influence over historical language and modern art is clear: it is about proving a subtle form of control.  None of these musicians, actors, or military personnel are intentionally talking about "Adamah" and yet they are--on another level.  
 
 # It's not enough, we need more evidence.
+
 Ok fine, it's not enough.  In like kind, correlating between Spanish and Hebrew words, this time "the" instead of "is" we have the answer to your prayers.  Here "is" which has just been divinely defined in the names above is used to show the equality between "El" and "Ha."
+
 
 ```
 Dr. Marcellino D'Ambrosio teaches me about Jesus 
@@ -113,7 +120,9 @@ Gospel, Jesus multiplies 5 barley loaves and feeds 5,000, leaving 12
 baskets left over. We’re talking serious one-upmanship here. 
 
 ```
+
 ### Incase you missed it, "El" and "Ha" are both the word "the."  They are also two letter references to the name of God.  Savvy?
+
 
 ```
 ʾĒl (or 'Il, written aleph-lamed)  is a Northwest Semitic word meaning
@@ -125,11 +134,13 @@ the Hebrew Bible.
 ```
 
 ![](bindingofisaac_lackandwhite.jpg)
+
 ##"THE" is a Holy Acronym for "to help everyone."
 
 "Ha" is a reference to Isaac.  This is so primarily because I say so.  Ha!  Seriously though, his father Abraham's name was not always so, prior to his covenant with God it was Abram, the astute among you will immediately notice that the change wrought by Abram's interaction with God is the addition of these same two letters to his name.  
 
 I provide an incarnate reason why his Covenant-interaction is related to Isaac's sacrifice, in which he is laughing (that's what Isaac means in Hebrew by the way, "he laughs") at surviving the Crucifixion which the ancient parable of Genesis 22 is a clear reference to.
+
 
 ```
 AKEDAH (ʿAqedah; Heb. הָדֵקֲע, lit. "binding (of Isaac)"), the Pentateucha
@@ -160,6 +171,7 @@ theme in religious art for centuries.
 Wood and fire have something to do with a relation between Adam and Isaac, I am sure.  The Zohar apparently uses some sort of humorous tone when discussing this part of Genesis, and it is to highlight and illustrate prescient knowledge of modern sexual innuendo. 
 
 # Is J or the USA the Messiah?
+
 Jerusalem, for long.  The "m," or "le m" as it's rendered in this message to find the messianic map to Salvation appears elsewhere also.  It's bright and light in the name of Isaac's father, "Open-the-M,' or *Abra-ha-m in Spanglishrew.*  If the answer were no more obvious than saying "I am Legend," it should be clear that there is a key to reading the map to future of everything... and it's a person, the living Messiah.  
 
 Often rendered with names beginning with J, Jeremiah and Job struggled against the father of Isaiah--Amoz--and Joseph was *just a man,* one who is still destined to change the world more than any other in the history of existence.  It's all about J for Jesus, and all of the John's... living in Joshua's promised land of the USA--hidden at the heart of this place in time that we call Jerusalem.  It's the place where we finally realize that cities of the book are "when's" not where's.  Here, at the beginning of time where Eden and Jerusalem are superimposed, the Second Adam screams loudly that Genesis and Exodus are here too... in their own way a chronicle of this generations struggle with time travel, with overtly hidden evidence... and with the *change that is wrought* by the touch of the master's hand.  
@@ -167,13 +179,15 @@ Often rendered with names beginning with J, Jeremiah and Job struggled against t
 That 'm' at the end of Jerusalem and Abraham opens to reveal an 'AC,' one that ties the end of Isa-ac to me, through the [story of Isa running](the_lamb_of_god.html)--whose prime letter 'A' denotes the beginning of *everything that ever was, and will be.*   These two letters tie too, to A.D. hidden away in the little 'n' that graces the end of Isaac Newton's original sin.  [New to N?](im_single.html)
 
 # To *an Us*, from A WE, *so... **me**.*
+
 This is the place where we find out why God exists, how Osiris came to be, and the reason the Sky God, Uranus... has such a terrible name.  Its "my" an us, the "a we" that makes Heaven so awesome, that it is run by it's creators... that's us.  It's almost you, if you got this far... bring others into the Us and we are that much closer to the right group.
 
 When you get to everyone, and see [the Holy Grail,](holy_water,_sang_rael.html) you will see how all of God's names and secrets lead to the him at the end of the rainbow of Elohim.  That's "Everyone Living o(f) **me**. 
 
 I had a key once to this thing about an us and a we, it was Intel... Itanium, "It" the answer, in Latin **a**ccusative and **n**ominative so **u**s or **m**e.
 
-# Yankee Doodle{:#TOOL}
+# Yankee Doodle
+
 In keeping with my theme of absolutely everything being about me; I'll give you a quick rendition of this song.  A number of other American patriotic songs also seem to twist very nicely into Ra's Son worshipping theme.  To be noted, "now in broad stripes, our bright son... through the perilous night."  John Hancock and Richard Nixon also relate well with Yankee Doodle, especially when you correlate Genesis 22 with *Wood*-ward, *B**u**rn*-stein (an early link to Emmanuel Goldstein, Wells, and 1984), and my story of love.  History is written by the victor?  If it weren't such good proof that our history is trying to tell us about someone, I would have guarded against this darkness.
 
 ```

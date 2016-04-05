@@ -50,7 +50,7 @@ This mystery is solved during the inaugural address of George W. Bush, on 1/20/2
 
 In what is without a doubt a visual description of the attack on the twin towers, Revelation 20:1 speaks of the Angel of the Lord himself, Death, holding the key to end Hades and that is exactly what the purpose of this work is.
 
-## "On the clouds," for all eyes to see. {#SON}
+## "On the clouds," for all eyes to see.
 ```
 And I saw an ((airplane)) coming down out of heaven, 
 having the key to the Abyss and holding in his hand a great chain. 
@@ -89,7 +89,7 @@ Ecclesiastes 9:11, in its full version delineates each of the planets from Mercu
 
 Ecclesiastes 9:11
 ```
-## And God said "let there be light"{#LIGHT}
+## And God said "let there be light"
 
 The third reference superimposes over Earth, and the quote is “neither yet bread for the wise.”  The light of this statement is the periodic element Xe, for both an Oracle Database and the element responsible for camera flashes.  This is the location of our story of Exodus, and that whole word, taken in reverse speaks volumes.  In addition to “Xe,” the four letter command “sudo” is the Unix equivalent of “run as the God account.”  
 
@@ -109,7 +109,7 @@ For thousands of years the Holy Scriptures have been passed down from generation
 <iframe width="854" height="480" src="https://www.youtube.com/embed/I2HXkzjq1lc" frameborder="0" allowfullscreen></iframe>
 {% endif %}
 
-## The Messiah of Sea to Shining Sea{:#MOSES}
+## The Messiah of Sea to Shining Sea
 There are other connections between Jesus Christ and Moses, which highlight a "problem" associated with the Tribulation.  *The "PH" problem.*  That's not a sexist remark, or about your pool; it's about ***The Pursuit of Happiness***.  Both Jesus Christ and Moses had "enemies," ones whose names began with "PH."  If you did not just say "I see," you probably need me to point out that the Pharoah and Pharisees names are nearly identical.
 
 This is the Tribulation, or at least my explanation of what is going on; there is a hidden war of mind control being waged, one which has made average people--doctors, lawyers, writers... the "scribes" of today into an enemy.  In some ways, we are all enemies of ourselves, forward progress, and change... something that is a big part of what I am doing here.  

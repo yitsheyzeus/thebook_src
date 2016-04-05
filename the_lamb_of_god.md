@@ -3,7 +3,7 @@ layout: default
 title: The Lamb of God
 author: Adam Marshall Dobrin
 ---
-# The **Lamb** of God... Is**Lam** {#GAS}
+# The **Lamb** of God... Is**Lam**
 *The **Lamb** of God* explained, it's a connection between the sacrificial Pescach Lamb in Exodus, to the Lamb of the Marriage of Revelation, and a word and idiom of our modern day.  "**Lam**," like "*on the run,*" and there's hidden message in our music and movies which highlight the already bright connection between the word "Islam" and the eventful trip around the country... where you might say God and I *Ko**ran***.  (For the blind, that's co-ran.)
 
 ![](10448562_479031952234051_3695115352572540828_o.jpg)
@@ -106,7 +106,7 @@ Did you write the book of love, and do you have faith in God above?
 
 Similarly to Iran, our map of reality confirms that this story has been in the works since the beginning of time.  You see, God's statement that he is *ish* is just about to celebrate *Rumspringer*.  Amish.  Iran.  Amoz. 
 
-# Isa, Isaac, Jesus and Isaiah  {#ISA}
+# Isa, Isaac, Jesus and Isaiah 
 
 Fundamental to understanding the apocalypse is seeing that these events are all the same story, being told over and over.  The Fall of Adam is the burning of Isaac, and the Crucifixion of Jesus Christ.  It is linked clearly in Isaiah 20 by showing us the nakedness of Adam is part of a mind controlled act of God.  
 
@@ -139,7 +139,7 @@ Just like many of the protagonists and victims in the Bible are all representati
 
 The name Samson links the angel of death, Samael to Uncle Sam; and this story that is decidedly American.  So sayeth Pro-me-the-US.
 
-# Hidden Messages in Music {#Kryptonite}
+# Hidden Messages in Music
 
 I was framed in 2012, arrested for possession of drugs that are the beginning of a story about a man on the run.  This story is part of a mythology Jesus Christ that links Superman and Spin Doctors, speed and Kryptonite.  It is through the songs that secretly talk about the events that I am going to describe that we find proof that they are truly about a real man, and that the angels are singing about it.
 
@@ -199,7 +199,7 @@ Try to set the night on fire
 
 -The Doors, Light my Fire
 ```
-## Can you take me *higher*, to a place where blind men see? {#HIGHER}
+## Can you take me *higher*, to a place where blind men see?
 
 God held a carrot out on a stick by talking to me more, and with more vibrant audo and visual aids.  For whatever reason, when I got high, the blind could see.  People around me changed, He spoke clearly and told coherent stories that spanned from day to day. 
 

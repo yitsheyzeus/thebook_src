@@ -50,6 +50,7 @@ Please take the time to think about causality, and the possibility that the apoc
 This is "the word" of John 1:1.  The fire referenced in Matthew 3:11; and it truly is just the beginning.  I am Adam; the Lion of the Tribe of Judah... and this is what a "roar" sounds like when it pours out of the Bible and across millennium.
 
 ### In the beginning was the Word, and the Word was with God, and the Word was God. -John 1:1
+
 ### I baptize you with water for repentance. But after me comes one who is more powerful than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and *fire*. -Matthew 3:11
 
 The rest of this book explains even more, it is a rough draft that includes hundreds of similar examples of words that simply cannot exist.  It is their impossibility that is the proof--a paradox that shows that God's hand is all of the creation of Hebrew... and then English, Spanish... all language.  This is the theft of fire, the proof that we are truly created.
@@ -78,7 +79,9 @@ This technology Ai, is very related; as the effects that I have seen, abilities 
 ## McFly, is anyone home?
 
 I intend to prove that our great strides in technology are not only Biblical, they are divinely delivered.  There is a great deal of proof of this all the way back to the foundation of our understanding of the universe.  
+
 ### In 1666, an apple fell from a tree and a man named Isaac Newton "discovered gravity," and original sin all at the same time.  
+
 He did this at a place called Trinity College, and then a bit later a man named James Clerk Maxwell unified theories of electricity and magnetism.  His name, Maxwell, alludes to a Biblical concept; a well found in the desert by Isaac's father.  This well brings light to the people, hopefully showing us how pervasive this idea that our names are "tags" from above links to a prolonged technology transfer (all the way back to Eden's discoverance of gravity) and it ties even further forward.  
 
 In 1984 George Orwell got a redux of his book written three decades earlier in Apple Computer's very famous ad campaign about the fulfillment of his prophesy.
