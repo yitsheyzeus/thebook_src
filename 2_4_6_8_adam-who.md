@@ -6,7 +6,7 @@ author: Adam Marshall Dobrin
 
 # 2 4 6 8 Adam-Who
 
-##What goes up must come down?
+## What goes up must come down?
 
 ```
 And God said, Let there be lights in the firmament of the heaven 
@@ -28,12 +28,12 @@ Like a lens that sits between the eyes of God and the world, I see the light of 
 In reality, this far-gone time is a hidden reference to our world--seen through the eyes of angels from the future; ones who see our lack of sight related to technology, and the tools we use improperly just as we see the old wars and social problems of the Biblical times.  It's a commentary, one that has been hidden until now.  This is the sword, the ability to finally see that we are the focus of this ancient work; and the story of a man fighting the problems of the world--by living them--that's the "Fall of Adam."  Here, the Lion of Judah... not a king but a family member.. in our Den.  That's Eden.
 
 
-{% if gitbook.generator == "website" %}
+{% if 1 %}
 <iframe width="854" height="480" src="https://www.youtube.com/embed/TO9OsSazQ0s" frameborder="0" allowfullscreen></iframe>
 {% endif %}
 
 
-##The *You and I* *verse*, my Universe
+## The *You and I* *verse*, my Universe
 
 ```
 I'm gonna love you 
@@ -50,11 +50,11 @@ I see clearly through a fog, a darkness that [the Egyptian plagues tell us is "s
 
 The *fire begins with words*, just like the ancient myth of Prometheus tells us--the truth about language has been stolen from Zeus himself... and given to you.  [It starts with a single word, "ha'esh" which ties the parted sea of Moses to the Hebrew word for the fire of the Burning Bush.](chapter1.html)  Truly though, the [hand of God](the_letter_why.html) is in nearly ever Holy word, and the story of the prelude of the Trial of Jesus Christ makes this very clear, by telling us that the Lamb of God--the word--is truly "lam."  [**Iran** from injustice, and in the process learned the secrets of religion, things like the fact that God's word for "Lamb" truly **Islam**.](the_lamb_of_god.html)  It was just before the run that unified "lam" with the word "koran," that I was shown something that solidified in my mind the fact that we are truly in Exodus.  
 
-###[I saw the Burning Bush, it was a Presidential inauguration, George W. Bush's, and from his mouth the words of God proved beyond doubt that we are "in Exodus."](behold,_the_burning_bush.html)
+### [I saw the Burning Bush, it was a Presidential inauguration, George W. Bush's, and from his mouth the words of God proved beyond doubt that we are "in Exodus."](behold,_the_burning_bush.html)
 
 This made me a sort of modern day Moses, a word which I later found out was a "macaronic" acronym, for *Messiah of sea to SEA.*  This message, that Nostr**adam**us' religion of the seas was not about the Atlantic and Pacific... [but rather that it is about seeing the message of God woven from Genesis to Revelation, is central to the Holy Grail.](holy_water,_sang_rael.html)  It's the "baptism" in water that Matthew 3:11 speaks about, the knowledge that "Holy Water" in the context of the parted sea and the water Christ walks on... is people.  Just like Prometheus' story, the fire is technology, language, and the things that through their use--truly define what it means to be in *civilization.*
 
-##And [the Fire](chapter1.html)
+## And [the Fire](chapter1.html)
 
 ```
 The heavens receded like a scroll being rolled up, and every
@@ -116,7 +116,7 @@ and think of it as me... drink this wine and dream it will be..."
 ```
 
 
-#phenix and the Last Day
+# phenix and the Last Day
 
 We are wandering together in the desert, about to see the light.
 The life of Christ in the New Testament is a prophesy, one which just like the Burning of Exodus is an allegory of events happening right now in our world.  It's about me... trying to light the world with the truth--what you are reading about.  On Ash Wednesday I sent a very large e-mail out, one which talked about the Burning Bush, and how it relates to today.  This series of e-emails tie directly to a story that was written into my life as a young man.  It's a microcosm, one of many, that sheds light on why it is that Christ wandered in the desert for 40 days, instead of the 40 years of Moses and Noah.  Microcosms of futures-past have been written into our world, and directly into me.
