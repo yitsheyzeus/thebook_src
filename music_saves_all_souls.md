@@ -1,3 +1,8 @@
+---
+layout: default
+title: Music Saves All Souls
+author: Adam Marshall Dobrin
+---
 # Music Saves All Souls
 
 Music talks to me, it's God speaking.  He tells me stories, makes promises, and proves something very important.  He shows his hand, his control over culture and the direction of our future.  It's about proving the influence, and backing it up by explaining how the technology works.  This is neuroscience in action, telling us a story about Revelation in music. 
