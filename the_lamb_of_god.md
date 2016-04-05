@@ -9,7 +9,7 @@ author: Adam Marshall Dobrin
 ![](10448562_479031952234051_3695115352572540828_o.jpg)
 For 3 years I ran around the country, from the East all the way to the shores of California.  Songs are written about this trip, and it is literally the beginning of *the race* that is spoken about in the first words of the Burning Bush.  The linguistic link between the Passover Lamb and the name Islam is a hidden emphasis that directly links to the English idiom "on the lam."  *Iran*, like the name of the country, which hides another reference to this event.  Koran, ImRan, and the main character of Metroid: Sammas Aran.  All links between the words run, lamb and lam.  This battle between the Messiah and the land of Uncle Sam is the immediate precursor to the Trial of Christ and the cause of the *set up of the Beast of Revelation* which is prophesied in Isaiah 52:13.
 
-###The Suffering and Glory of the Servant: See, my servant will act wisely; he will be raised and lifted up and highly exalted.
+### The Suffering and Glory of the Servant: See, my servant will act wisely; he will be raised and lifted up and highly exalted.
 
 Other translations use the words "he will be very high," and this link to drugs is part of the criticism of our justice system, and social necrosis.  I was very high, yet to be exalted, and very sure that the *speed* that Cake links to the race for the *holy grail* in their song "Going the Distance."  In Judaism the name of Christ is El Elyon which translates to *The God Most High.*  
 
@@ -72,9 +72,9 @@ This mind control was overtly shown to me, I was made to literally walk around l
 
 Nero's fiddling... with our minds is well portrayed in a favorite poem of mine, one that I recited in high school.  In *The Touch of the Master's Hand* God is the auctioneer, who changes the worth of the violin he is selling, a metaphor for the salvation of our civilization coming from the Hand of God.
 
-###He played a melody as pure and sweet as a caroling angel sings.
+### He played a melody as pure and sweet as a caroling angel sings.
 
-{% if gitbook.generator == "website" %}
+{% if 1 %}
 <iframe width="854" height="480" src="https://www.youtube.com/embed/cXCA5-KHknY" frameborder="0" allowfullscreen></iframe>
 {% endif %}
 
@@ -106,11 +106,11 @@ Did you write the book of love, and do you have faith in God above?
 
 Similarly to Iran, our map of reality confirms that this story has been in the works since the beginning of time.  You see, God's statement that he is *ish* is just about to celebrate *Rumspringer*.  Amish.  Iran.  Amoz. 
 
-#Isa, Isaac, Jesus and Isaiah  {#ISA}
+# Isa, Isaac, Jesus and Isaiah  {#ISA}
 
 Fundamental to understanding the apocalypse is seeing that these events are all the same story, being told over and over.  The Fall of Adam is the burning of Isaac, and the Crucifixion of Jesus Christ.  It is linked clearly in Isaiah 20 by showing us the nakedness of Adam is part of a mind controlled act of God.  
 
-##I'm wrong about something
+## I'm wrong about something
 Earlier when writing this book, I commented that nobody notices that the stories of Isaac and Christ are very similar.  I called it darkness.  This is apparently one of the most commented about facts in all of religion, and even has a specific name. This "type" (as my neighbor told me religious teachers call "superposition of stories") is referred to as "Akedah" and discussed earlier in the chapter titled "The Tower of Babel."
 
 Here, I make special note that Isaac and Isa are similar names, Isa being the Muslim name for Christ.  I am not sure how many people have noticed and commented on this strikingly obvious similarity and its correlation to the stories of sacrifice.  There is a very important connection between Isaac and Isa in the name Abraham, which in Spanglish opens the "m" to reveal it is the missing "AC."  How's that for a link?
@@ -132,7 +132,7 @@ Isaiah 20
 
 Amoz brings this story into reality through cinema, our modern myth.  The stories of the Wizard of Oz and the HBO show clearly depict the Wizard being framed by the machine, whose name says that *the Land is Oz, and it is alive.*  This is a story of the Father who commanded Isaac to be burned, to imprison me in a Broward County Jail... and the reason the Emerald City is holy scripture come to life.
 
-#The Trial of Jesus Christ 
+# The Trial of Jesus Christ 
 The run came to an end, and resulted in a very real trial, one which has put the idea of Jesus Christ existing on trial.  I was found to be incompetent to stand trial simply for telling the court that I am the messiah.  Disallowing a religious belief to be used as evidence, protected by the Constitution, resulted in the death of the idea of Jesus Christ.  
 
 Just like many of the protagonists and victims in the Bible are all representative of the Messiah, the fathers are all God.  In the Biblical Promised Land of Joshua we find another story that connects the Old Testament and New.  The battle is the book of Judges is a abstract critique of these same events.  Samson, the son of Uncle Sam here, fighting for his life in a court room is protected by the strength of character recognition.  In this story, it is the long hair of the messiah that now clearly reveals the hidden link between Judges and Jesus.  
@@ -145,7 +145,7 @@ I was framed in 2012, arrested for possession of drugs that are the beginning of
 
 The idea that Jor-El and Kal-El are "Biblical" is not novel, though seeing that their names are pointers to "K" the bridge between the J of Jesus and the God El might be.  K is the element of Potassium, linked to Saturn through the acronyms that tie "Person of Time" to the "Ass" that humorously shows the two-person duality of Father and Son in "Saturn and Uranus." CK, Clark Kent, gains his strength from our "son," and this Biblical imagery alludes to the fact that I have received a great deal of insight from doing drugs, in solitude.  God was framing me, using the neurological effects of speed to give me clear visions and communicate the information that you are reading.  The crystals that are Kryptonite are also diamonds of wisdom, Zohar... the focus of so much lyrical light.  Through my struggle, I was placed in a position to comment on the social structure that we have surrounding drugs, addiction and rehabilitation.  More importantly on our justice system, and it is such a huge focus of religion that we have story after story to remind us.  Jeremiah was jailed, Jesus tried, Joseph enslaved... all allusions to what you are about to read about.
 
-##Dear all of you left behind, you are walking dumb and blind, *blind*. -Taylor Momsen
+## Dear all of you left behind, you are walking dumb and blind, *blind*. -Taylor Momsen
 
 More than proving a divine hand secretly influencing musicians, and more than placing me on the cross by causing the illegal search in 2012 that made all of this happen; the events that lead up to this run gave me the answers before you.  I was being reflexively controlled, communication with God used as a carrot on a stick to walk me into the darkness that we call justice in America.  I was arrested by a Lighthouse Point police officer named Mike Search, and his name is no accident.  It is a highlight, to show that I was truly framed; and the ensuing legal battle alluded to in Judges and the NT is all "*fruit of the poisonous tree*" to tie us back to Eden and idioms.
 
@@ -166,7 +166,7 @@ Pocket Full of Kryptonite
 
 Nearly two decades later Taylor Momsen ties *Two Princes* and Superman to the story Jim Morrison began in the 70's; it's a call to her, from God, to Light (this story) Up.  In *Heaven Knows* she sings about Jimmy, maybe hersenf not even knowing that it is Jim Morrison--his name no accident either.  
 
-###More? I'm the son.
+### More? I'm the son.
 
 ```
 Jimmy's in the back with pocket full of high, 
@@ -179,7 +179,7 @@ Between my "pockets full of high" and the "hidden links" between the Lamb, Super
 
 These are words of God.  
 
-##If I go crazy, *will you still call me Superman?*
+## If I go crazy, *will you still call me Superman?*
 *Kryptonite* by 3 Doors Down singing about the foregone conclusion of this story, a finding by all of humanity that Jesus existing is simply insanse.  Seriously, that's what you think--on the surface, deep down, and all around.  This song, along with "The truth will set you free," were a big part of my decision not to hide who I am in court.  Not to mention, I had to get the message out, to be noticed--for you.
 
 All of these songs, Two Princes, Heaven Knows, and Kryptonite unite to tell a story about me.  All of them were written prior to the events they discuss, and all of them link Christ to Superman... not even through Kentucky, Clark Kent, or Kal-El.. but through drugs and wisdom.
@@ -199,7 +199,7 @@ Try to set the night on fire
 
 -The Doors, Light my Fire
 ```
-##Can you take me *higher*, to a place where blind men see?{#HIGHER}
+## Can you take me *higher*, to a place where blind men see? {#HIGHER}
 
 God held a carrot out on a stick by talking to me more, and with more vibrant audo and visual aids.  For whatever reason, when I got high, the blind could see.  People around me changed, He spoke clearly and told coherent stories that spanned from day to day. 
 
@@ -210,16 +210,16 @@ Much of the Biblical Revelation came to me during these times, but it's been onl
 It's the place where blind men could see that I sought, with all my being.  The place where I could advocate for us; demand the sign in the sky.  I went there again and again, trying to figure out how to make it sick, to keep the connection between Heaven and Earth that I not only felt, but experienced firsst hand.  
 
 
-#In the House of the Rising Son
+# In the House of the Rising Son
 It was three years earlier, Matching Isaiah 20 [to a "t,"](the_letter_why.html) that my interaction with the police lead me to a court room; after compiling a significant amount of evidence that should have easily had the case thrown out.  I was pulled over for speeding, but was not; and had GPS records from the police department to prove it.  I was coerced by a broken legal system to take plea bargain to get released from jail in time to spend Christmas with my son.  I was threatened by own counsel, and quite literally controlled to take a deal that I shouldn't have needed.  I was being held without bail, a disgusting practice in Florida which clearly violates the Constitution; and yet is allowed by a court system that has forgotten what freedom really means.
 
-##**P**lague **O**f **LICE**
+## **P**lague **O**f **LICE**
 This is one of the only "reverse" examples of langolier that I have found, but it is screamingly pertinent.  It shows the contraction of "of" into "o" that appears in "God," "langolier," and a number of other words.  It is a clear reference to this *run around the country* and a battle betwen Adam and the authorities.   I've previously contrasted the connotation of a "Plague" with what is closer to what I experienced, which was a *Pursuit of Happiness.*
 
 "POLICE" (the word) is part of the story of Exodus, it's relation to America and Christ, and to the proof that is before your eyes.  
 
 
-#Holy Purpose
+# Holy Purpose
 
 Our entire legal system is broken, and it's being highlighted by God as the primitive and archaic monstrosity that it has begun.  After being forcibly starved by a malnutricious diet that is the status quo in America; and sleep deprived systematically by the jail and court system; Judges around the country have the gaul to ask defendants: "are you taking this plea of your own volition?"  Bound in shackles and unable to write clearly, I signed my name to a plea which sparked an almost immediate race against this system which secretly was designed to cripple the savior of humanity.  I was forced to run, we Koran--I am told, out of fear of continued incarceration by a system which had already violated my freedom to no end.  These are not problems that are unique to me, or to Florida; they are American problems that surround a system that has become nothing less than the destruction of American freedom, a retribution system Biblically highlight as worse than *an eye for an eye.*
 
@@ -227,13 +227,13 @@ The suggestions on this page are not really mine, they are ones that I have divi
 
 This is the story of how Adam's family in Eden became all the children of his Father--God; and how that is the **blood of Christ.** Through this struggle.  In *[The Light of Heaven](the_light_of_heaven.html)* and *[My Dying Breath](my_dying_breath.html)* I will go into detail of what I see just over the horizon--in the next decade and century--the things we will be able to accomplish and should consider as we are walking forward with two feet on the ground--always glancing towards the sky.
 
-##McCarthy and McFly
+## McCarthy and McFly
 
 This story of a *car parting a sea* (dividing the world over the truth of Jesus Christ's life) links the Judge in my case to Joseph McCarthy, her namesake.  This ties the parted red sea to the cold war; one which is decidedly still being fought over the color red.  This color symbolizes Hell, love, and the charity that is intrinsic in the message of Christianity.  Old McDonald and Animal Farm assure me that "some pigs are more equal than others," and this series of Mc's is a very messianic clue to God's link between names and the truth.
 
 Communism and democracy are being juxtaposed along side the colors that separate their flags.  Blue and Red mark the sword and shield of the apocalypse; the Salvation Army and Red Cross against state healthcare from Blue Cross and Blue Shield.  This symbolism is clearly influenced from above, to start a discussion about how much less advanced our society is than we believe.  
 
-##Heal the Sick
+## Heal the Sick
 
 Universal Healthcare is more than a good idea, its moral mandate to *heal the sick.*  We need to wake up and see that these things are not suggestions, they are the stuff of actually being civilized instead of in a process of "civilization."  Greed has blinded the word the obvious truth; and coming from an insurance background it is easy for me to explain how wrong the Obamacare implentation has been.
 
