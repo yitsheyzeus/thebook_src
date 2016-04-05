@@ -1,3 +1,8 @@
+---
+layout: default
+title: My Dying Breath
+author: Adam Marshall Dobrin
+---
 # The Voice from the Fire
 
 ###I have heard a voice, you're suffering through all this noise. -Taylor Momsen
