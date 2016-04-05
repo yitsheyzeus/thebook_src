@@ -254,4 +254,3 @@ Legislatures should be financially incentivising successful rehabilitation, not 
 
 #Ants Marching and the Crown of Thorns
 
-{% include "./footer.md" %}
