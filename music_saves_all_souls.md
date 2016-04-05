@@ -96,5 +96,3 @@ She is created (sort of like you), her life--like many actors and actresses--a m
 
 ##I'm so *vain*
 Except, [*not really.  Just single.*](im_single.html)  You could say I feel like *an unsung ~~hero~~*.
-
-{% include "./footer.md" %}
