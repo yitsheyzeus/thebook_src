@@ -158,5 +158,3 @@ When a band spanned, it yielded radiant colors.
 It was after discovering this pattern, one which ended with my book titled "**to the Kalor of the Son**" a reference to both Osiris' green (olive) complexion, and this answer to Revelation 3:16 (I think he's saying I'm not cool...) that I created the cover of this book, one which matches the victorious shield of Revelation 9:17.  These colors: red, yellow, and blue are for the fire that starts the global Revelation, yellow for friendship, and blue for the creation of Heaven.
 
 You might not see it as clearly as I, not living the fulfillment of the words; but watching ancient scripture relate directly to events in your life gives you a new found understanding of what it means for a prophesy to be fulfilled.  It's years of my life that went into proving to me that this story in my life was recorded thousands of years ago.  This is the microcosm of the Messiah, and it shows me clearly that the story of our world follows suit.
-
-{% include "./footer.md" %}
