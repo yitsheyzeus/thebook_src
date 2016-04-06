@@ -42,6 +42,7 @@ I was born, as I've said, on the date of the Catholic Feast commemorating the "I
 *I was neither hot nor cold, but "cool;" and now I am forever lit by Taylor Momsen's magical inspiration.* -Adam Marshall Dobrin on Revelation 3:15
 
 ![](The-Pretty-Reckless-Going-to-Hell-2013-1200x1200.png)
+
 *Going to Hell* has a [very beautiful message,](http://www.metatube.com/en/videos/222695/The-Pretty-Reckless-Heaven-Knows-Official-Video/) one which is sarcastic and definitely should not be taken at face value.  We are all saying the same thing; though you may not consider yourselves "babies," in relation to Heaven and God we are very young.  We deserve much better than we have today, and it is coming.  Today.
 
 ### *"The walls and halls will fade away... they will fade... away."* -Dave "J." Matthews
