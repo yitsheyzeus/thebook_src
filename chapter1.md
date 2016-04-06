@@ -13,7 +13,7 @@ and let it divide the waters from the waters.
                                                        Genesis 1:6
 ```
 {% if 1 %}
-<h1>h <b> <img src="./yod-scale-100.jpg" alt="-"> es</b> h</h1>
+<h1>h <b>a<img src="./yod-scale-100.jpg" alt="-"> es</b> h</h1>
 {% endif %}
 
 The word for "holy fire," written above is the Hebrew term for the Burning Bush, the focal point of the beginning of the story of Exodus.  In it, God commands Moses to free his people from slavery, and that is exactly what I am doing with this post.  You see, later in the story Moses parts a sea, and from those parted waters brings the people out of slavery.  It is not an accident that within the Hebrew word "ha'esh" we see clearly the true parted sea of Moses; reflected and separated by an apostrophe, ad "yod."
