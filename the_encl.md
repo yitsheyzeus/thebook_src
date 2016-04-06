@@ -19,8 +19,11 @@ Vine and tree references, like *The Tree of Knowledge* and *The Tree of Life* ar
 Quantum theory, actually, yields some serious *Light* on whether or not we are in this place I am describing.  The idea of *wave function collapse* makes absolutely no sense... in reality.  In Heaven it makes much more, it is a way to lessen processing power, not rending things that are not being observed by a conscious person.  All the way back at the big bang, perhaps proof our Universe is designed to cater to consciousness.  Sacred consciousness.
 
 ![The Lamda, an upside down Y](sign_why.png)
+
 ## The Creator's Light
+
 ### d = c + l, our glyphs, the letters of the Latin alphabet contain hidden messages.
+
 This one is special, because it explains the domain that this book is located at, www.lamc.la.  I've broken the code, and the Greek letter Lamda, which is part of an "N."  It's an N to darkness, and an awakening to seeing that our languages, and letters, are designed with intelligent and hidden meaning.  Like ancient Heiroglyphs, our letters teach a path... and the N is the [*new J*.](the_tower_of_babel.html)
 
 ### "**C**" the **L**ight.  "d" is for darkness, a hidden truth.  

@@ -128,7 +128,7 @@ The idea that Adam and Eve are united bringing the "bright morning star" (AD for
 
 From Venus to the day star, the "light of world" unites the Sun God Ra with the Sol--a bit of imagery I never really liked.  To me, the Earth is the source of light, the circle of the "son" is found in the symbols for Venus and Mars.  There a literal circle shows a "frame of reference" from the arrow and cross to Earth.  There is a "map" in our planetary orbits, one which is augmented by the astrological symbols and a bit of inference.  The symbol for the sun itself also is related, it looks like a big "zero" with the messiah a hidden "dot" in the center of the circle. 
 
-##*Y is Ra El*?
+## *Y is Ra El*?
 
 ![](is ra el.jpg)
 
