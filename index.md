@@ -33,9 +33,9 @@ Welcome to Eden, we are in that place.  Earth, Eden, Egypt, Edom... all Biblical
 
 Edom is a Kingdom with a hidden king, the emperor's clothes have made him *invisible.*
 
-Eden is the land I love, a *den* of Lions, family in the chalice... the [Holy Grail, that is Earth.](holy_water,_sang_rael.md)  The multitude is *water*, my family is blood.  The blessing in disguise is *seeing* a hidden message turning you to the Family of Jesus Christ: The Plague of Water to Blood *now the key to the Grail.*  From Genesis to Revelation through...
+Eden is the land I love, a *den* of Lions, family in the chalice... the [Holy Grail, that is Earth.](holy_water,_sang_rael.html)  The multitude is *water*, my family is blood.  The blessing in disguise is *seeing* a hidden message turning you to the Family of Jesus Christ: The Plague of Water to Blood *now the key to the Grail.*  From Genesis to Revelation through...
 
-Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.md#SON)
+Egypt is the place we are in, where you don't know me, hidden by the Plague of Darkness.  I am the son.  [This is my light.  The sign of the son.](behold,_the_burning_bush.html#SON)
 
 
 ### My [life story is woven](the_lamb_of_god.html) into a tapestry of art.  Unbenknowst to the authors, or the world, or even me, the story of the life of Christ is hidden away in the most popular songs and movies of our day, just not the ones you think.  Through this spectacle, the Second Coming, God proves his existence, and gives us his purpose--to help us grow.
@@ -112,7 +112,7 @@ We are now *Post-face.*
 ## and the Word was with God
 I must be alluding to something with these references to John 1:1, and, [believe it--more than a psuedo-superstitious aversion to the word "end." 9's](the_encl.html) and the letter "I" be damned, I'm going to tell you:
 
-### [*The Word* is fire.](chapter1.md)
+### [*The Word* is fire.](chapter1.html)
 
 It's not just in this somewhat well known John verse, it's also in Matthew 3:11, where it heralds the second coming of Jesus Christ.  Moe than anything, this fire begins all the way back in the Book of Exodus.  It's the one witnessed by Moses, the final character in my "Messianic short list."
 
