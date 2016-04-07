@@ -23,7 +23,7 @@ author: Adam Marshall Dobrin
 
 ## words read in reverse
 ### lot
-In relation to the band *tool*, ["Yankee Doodle" in *The Tower of Babel*](the_tower_of_babel.html#TOOL), to Lot's Wife in "The Consort of El" in [*He laughs, again*](hamd.md/he_laughs.html#SALT).
+In relation to the band *tool*, ["Yankee Doodle" in *The Tower of Babel*](the_tower_of_babel.html#TOOL), to Lot's Wife in "The Consort of El" in [*He laughs, again*](he_laughs.html#SALT).
 
 ### rod
 To The Doors in [*Music Saves All Souls*](music_saves_all_souls.html), the Iron Rod of Christ in [*The Sang Rael*](holy_water,_sang_rael.html)
@@ -78,7 +78,7 @@ Iran, well... I suppose we Koran.  ImRan because of it, and that's the story of 
 ### Hg
 **Behold, the race is not to the swift.** [The Burning Bush.](behold,_the_burning_bush.html) [The Lam~~b~~ of God.](the_lamb_of_god.html)
 ### Na
-**nor the battle to the strong.**  [Lot's wife and the Pillars of Creation.](hamd.md/he_laughs.html)  [Veruka Salt.](bread_for_the_poor.html)
+**nor the battle to the strong.**  [Lot's wife and the Pillars of Creation.](he_laughs.html)  [Veruka Salt.](bread_for_the_poor.html)
 ### Xe
 **neither yet [bread to the wise.](bread_for_the_poor.html)** [light in Exodus.](chapter1.html)
 ### Fe

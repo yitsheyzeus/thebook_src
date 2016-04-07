@@ -11,7 +11,7 @@ author: Adam Marshall Dobrin
 
 {% endif %}
 
-Through the lyrics of rock and roll, He speaks a woven message that ties ancient scripture to modern music; and links history and *langolier* together with a message that takes a bit of thinking to grasp.  Once you take the time to see what is being said, or not overtly said the [light of the Menorah of Chanukah](hamd.md/he_laughs.html) sheds understanding on more than just this one concept, but on the whole of the Bible.  It's more than just "sentences" hidden within words, they form the basis of a message--one which is lighting the history of humanity's improvement in the microcosm that is America.
+Through the lyrics of rock and roll, He speaks a woven message that ties ancient scripture to modern music; and links history and *langolier* together with a message that takes a bit of thinking to grasp.  Once you take the time to see what is being said, or not overtly said the [light of the Menorah of Chanukah](he_laughs.html) sheds understanding on more than just this one concept, but on the whole of the Bible.  It's more than just "sentences" hidden within words, they form the basis of a message--one which is lighting the history of humanity's improvement in the microcosm that is America.
 
 ![all around us](1613896_734392763238790_1396235445_n.png)
 

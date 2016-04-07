@@ -15,7 +15,7 @@
 * [The Light of Heaven](the_light_of_heaven.md)
 * [My Dying Breath](my_dying_breath.md)
 * [God and the Big Bang](god_and_the_big_bang.md)
-* [He Laughs, again](hamd.md/he_laughs.md)
+* [He Laughs, again](he_laughs.md)
 * [His Heart and SOL](his_heart_and_sol.md)
 * [Holy Water, Sang Rael](holy_water,_sang_rael.md)
 * [Computer explain Einstein's Relative-to-me](computer.md)

@@ -291,7 +291,7 @@ Matthew 1:19 highlights Joseph's description as "only a man" in italics as I rea
 
 ### Isaac, son of Abraham
 
-Perhaps not clear, Abraham is *Spanglishrew* for "Open the M," and this M opens to reveal that it is comprised of the "AC" that grace the end of America and the name of Isaac.  Isa is the Muslim name for Christ, and this father/son relationship that links Isaac and Abraham together through the ["Ha" of Horus](hamd.md/he_laughs.html) is one of the most important series of two letter clues that the true geneology of Adam has to offer.  
+Perhaps not clear, Abraham is *Spanglishrew* for "Open the M," and this M opens to reveal that it is comprised of the "AC" that grace the end of America and the name of Isaac.  Isa is the Muslim name for Christ, and this father/son relationship that links Isaac and Abraham together through the ["Ha" of Horus](he_laughs.html) is one of the most important series of two letter clues that the true geneology of Adam has to offer.  
 
 God changed Abram's name to Abraham upon the Covenant, which took place after the near sacrifice of Isaac on an altar of Fire.  This altar is a clear parallel of the Cross of Jesus Christ, and the Ha links directly to the English meaning of the name Issac: *he laughs.*
 

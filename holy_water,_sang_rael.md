@@ -26,7 +26,7 @@ By "Us" I mean our generation, the people of the Earth of [post 9/11 America,](b
 ### Taking a step back, and looking at religion as if it were a message designed to be sealed up until now, it's words saved in time across millenium to find new meaning today shows the hand of a hidden designer influencing all of history.
 
 
-You can eventually see that all religion, and history, and language was written in order to deliver a message to our time, to you--right now.  I am going to show you how ancient words include references to English, to [modern concepts (like the "root" of David being the Linux God account)](chapter1.html), and to ideas that the ["actual authors" could not possibly have known about.](hamd.md/he_laughs.html)  This is *how* we see the hand of God, by realizing that despite the fact that the authors of the Old Testament could not possibly have understood the English words for "sea" and "family" that not only did God understand and know about them at the time of writing Genesis--he makes a huge point of proving that foreknowledge to us... here at the time of Revelation.
+You can eventually see that all religion, and history, and language was written in order to deliver a message to our time, to you--right now.  I am going to show you how ancient words include references to English, to [modern concepts (like the "root" of David being the Linux God account)](chapter1.html), and to ideas that the ["actual authors" could not possibly have known about.](he_laughs.html)  This is *how* we see the hand of God, by realizing that despite the fact that the authors of the Old Testament could not possibly have understood the English words for "sea" and "family" that not only did God understand and know about them at the time of writing Genesis--he makes a huge point of proving that foreknowledge to us... here at the time of Revelation.
 
 > This change in "target audience" is one which is well pronounced in a re-reading of the story of Exodus, once you realize that the beginning of the fire of the Burning Bush is designed to [focus on an English word hidden within the ancient Hebrew for "holy flame."  That word is the parted "sea" of Moses, and in seeing that the entire story of parting a sea might come from the Revelation that English is hidden in ancient Hebrew... you might begin to see how "**Ha'esh**" quite literally starts a fire here and now](chapter1.html), about the story of Exodus being about "Us."  For what it's worth, there is a modern day event which also correlates to the Burning Bush, and [it is the inauguration of the eponymous President--who by speaking words of Ecclesiastes 9:11 months before the 9/11 attack answered a riddle that heralds the coming of Christ in Revelation.  This real-world Burning Bush is the Sign of the Son discussed in Matthew 24:30.](behold,_the_burning_bush.html)
 
@@ -93,11 +93,11 @@ Seeing the word SEA expand from Eden, just like the name Adam does--from a small
 
 It is about the inclusion of *everyone willing to help* in the Holy Cause that is the creation of Heaven--a more perfect society.
 
-Taylor Momsen [**sings** that "everyone must be saved." Dave Matthews echoes "five billion proud willing to punch it out... right or wrong, weak or strong..." and all of it ties back to the first three words of Genesis: "IN THE BEGINNING."](music_saves_all_souls.html) There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  Asherah of course, is discussed in [*He Laughs, again*](hamd.md/he_laughs.html). 
+Taylor Momsen [**sings** that "everyone must be saved." Dave Matthews echoes "five billion proud willing to punch it out... right or wrong, weak or strong..." and all of it ties back to the first three words of Genesis: "IN THE BEGINNING."](music_saves_all_souls.html) There is a huge secret message in the Bible, one that literally spans from Eden in Genesis to the multitude in Revelation.  Its about the "sea" short for Seth,Eve,Adam in the beginning, and expanding.  Holy water is people is the beginning of the Holy Grail.  Asherah of course, is discussed in [*He Laughs, again*](he_laughs.html). 
 
 ![](1014066_436918383112075_4178235461669577390_n.jpg)
 
-[Ha, me for "ash."](hamd.md/he_laughs.html)  That's "Adam's Sigma Heart," *Adam & Everyone.*
+[Ha, me for "ash."](he_laughs.html)  That's "Adam's Sigma Heart," *Adam & Everyone.*
 
 
 ```

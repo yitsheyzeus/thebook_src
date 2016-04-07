@@ -85,7 +85,7 @@ There is significant anecdotal evidence pointing to the idea that Adam is the tr
 
 Adamah and Earth are both linked through their secondary meaning of *ground*, and the word Earth links directly to [*The Holy Grail.*]() through this [*Live* song and His "Heart."](http://sol.lamc.la)
 
-[*"The Name"* a Hebrew Holy name of God is "Ha'shem," a hidden reference to Eden.  This is in a long list of "Ha" about references to me and now.](hamd.md/he_laughs.html#hashem)
+[*"The Name"* a Hebrew Holy name of God is "Ha'shem," a hidden reference to Eden.  This is in a long list of "Ha" about references to me and now.](he_laughs.html#hashem)
 
 This unseen link between English and Hebrew is not an outlier, odd and useful ties that would be largely impossible to exist without having English predate Hebrew are not outliers, they are the status quo in the "small" sample space that is created intentionally by religion.  Their hidden highlighting by our cultural saying and modern music is also intentional, and a huge part of the *light.* Something is being proven to the world, it is that there is a real influence pointing out these ancient keys intentionally.  The connection between a designing influence over historical language and modern art is clear: it is about proving a subtle form of control.  None of these musicians, actors, or military personnel are intentionally talking about "Adamah" and yet they are--on another level.  
 

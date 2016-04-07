@@ -5,7 +5,7 @@ author: Adam Marshall Dobrin
 ---
 # The Encl
 
-God is superstitious, he doesn't like the number 9, or the word end.  [Asherah he asks?  Ha'meforash.](hamd.md/he_laughs.html) is God's reply.  Thats the name of his "girlfriend," in ancient Hebrew religions, and its a question... ["Ash or All Humanity?"](holy_water,_sang_rael.html)  Who to save, right in his name.  The holy name, Ha'me-for-ash.  (for those of you that don't [get the "Ha"](hamd.md/he_laughs.html) it's saying he's not for burning the universe (he created) to ash.)
+God is superstitious, he doesn't like the number 9, or the word end.  [Asherah he asks?  Ha'meforash.](he_laughs.html) is God's reply.  Thats the name of his "girlfriend," in ancient Hebrew religions, and its a question... ["Ash or All Humanity?"](holy_water,_sang_rael.html)  Who to save, right in his name.  The holy name, Ha'me-for-ash.  (for those of you that don't [get the "Ha"](he_laughs.html) it's saying he's not for burning the universe (he created) to ash.)
 
 Saving the universe is the purpose of religion, and God's plan is to make angels of us.  Angels [born in the fire of Hell.](behold,_the_burning_bush.html)  This Hell is a storm of time travel that has caused us to relive our lives... at least 2 times, but probably many more, if you know me.
 
