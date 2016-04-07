@@ -49,7 +49,7 @@ Four races, all bi-pedal, *Sim*ian in nature.. ten fingers and two limbs.  The l
 
 So how could this have happened?  4 divergent civlizations, Romulan, Vulcan, Ferenghi and Klingon.. all from Earth?  It's a sad story, about why we need to ensure that communication is kept with our children, colonies formed in the future.  A warning, not to lose touch, and then forget where you came from.  We come from the planet at the beginning of time, the point of origin of life itself... in the future, who will remember?  More importantly, who has already forgot?  Father of Heaven, and life, we are. (Do I sound like Yoda?)
 
-This Point of Origin idea is a reference to Stargate, and these stars are the beginning of understanding that there is a [religion of the sea...](./holy_water,_sang_rael.md) one that revolves around the sea being an allusion to outer space.  Star Trek might be pointing out our hubris, to think we are alone in the Universe, and that everything out there would be just like us.  Imagine there are *aliens* all around you, invisible ones, secretly working to build a new Heaven.  Using us.  This is the premise of what is apocryphally described as the Archons, and bears a striking resemblance to our view of angels and also demons.  
+This Point of Origin idea is a reference to Stargate, and these stars are the beginning of understanding that there is a [religion of the sea...](./holy_water,_sang_rael.html) one that revolves around the sea being an allusion to outer space.  Star Trek might be pointing out our hubris, to think we are alone in the Universe, and that everything out there would be just like us.  Imagine there are *aliens* all around you, invisible ones, secretly working to build a new Heaven.  Using us.  This is the premise of what is apocryphally described as the Archons, and bears a striking resemblance to our view of angels and also demons.  
 
 This "religion of the sea" stuff is a reference to an old Nostradamus prophesy, one that contrasts it with the the religion of the Son.  What's it about?  I know.  It's in the chapter about the Holy Grail.
 
@@ -67,7 +67,7 @@ Nostradamus [X.96]
 
 Adaluncatif is “English,” Adam un-cat-if. It’s a messiah reference, the undying lion with infite lives.  L and M are also big letters for the *M*essiah.  Nostradamus name includes "Adam," "art" in reverse, and Nos... for we.  Adam might be us, we might not be at, and ... this prophesy is very related to the apocalypse.
 
-[The two wounded by A and A is a reference to 9/11 and the two WTC towers.  A&A, American Airlines, go figure.](chapter1.md)
+[The two wounded by A and A is a reference to 9/11 and the two WTC towers.  A&A, American Airlines, go figure.](chapter1.html)
 
 ## On the Tau'ri, and Alpha Cen**tauri**
 

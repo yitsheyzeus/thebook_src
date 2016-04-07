@@ -331,4 +331,4 @@ K is the pointer to El, see "L <" which is pretty much what religion, and then o
 
 This is "Grey Light," which ties Grey Skull to Gene Grey, Grey Street, and a series of pictures I drew in jail.. to share what I knew with the world the only way I could.  All this "grey" is a reference to the Pale Horse of the Apocalypse; once Rainbow Colored (like in Heaven is for real) *all the colors faded together... **to grey**.*
 
-There's an entire chapter dedicated to the "ran" of these elements, see [The Lamb of God.](the_lamb_of_god.md)
+There's an entire chapter dedicated to the "ran" of these elements, see [The Lamb of God.](the_lamb_of_god.html)
