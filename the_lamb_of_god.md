@@ -199,11 +199,12 @@ Try to set the night on fire
 
 -The Doors, Light my Fire
 ```
+
 ## Can you take me *higher*, to a place where blind men see?
 
 God held a carrot out on a stick by talking to me more, and with more vibrant audo and visual aids.  For whatever reason, when I got high, the blind could see.  People around me changed, He spoke clearly and told coherent stories that spanned from day to day. 
 
-We had discussions and arguments, about you; about the future, and what we could offer to the world.  I learned about the [*futures past*](outside_of_heaven.html], what went wrong and what went right.  From these conversations I know where we are going, what the speedbumps and roadblocks will be, and how to move past them.  This book is an introduction to the ideas that save civilization.  How technology can be used to help us evolve socially, without losing who and what we are, the light of the Universe.
+We had discussions and arguments, about you; about the future, and what we could offer to the world.  I learned about the [*futures past*](outside_of_heaven.html), what went wrong and what went right.  From these conversations I know where we are going, what the speedbumps and roadblocks will be, and how to move past them.  This book is an introduction to the ideas that save civilization.  How technology can be used to help us evolve socially, without losing who and what we are, the light of the Universe.
 
 Much of the Biblical Revelation came to me during these times, but it's been only recently, since I've been in and of jail... no longer *on the lam* that I've gotten the key pieces.  In a jail cell I was given the key to Revelation 1:20, the link between elements, the planets, and George Bush's 1/20/2001 speech that tied it all together.  There I found out that all of those Gods were aspedts, critiques of the same one.  Zeus is Saturn is Uranus, all ... messiahs that "were."  Through this loop we've gone, over and over, *at least* to the 5th time; where we are now seeing that the days of creation and the seals of Revelation match up, to show us what's happened in these futures that have gone by and come back to help.
 
