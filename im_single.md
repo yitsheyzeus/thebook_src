@@ -15,6 +15,7 @@ Her connection aside, we have the apocalyptic revelation that the Temples of Sol
 
 ADonIS, discussed more below, sheds great light on *my belief* that I won't have any more dating trouble soon.  We will see, but there's definitely songs about it.  This stuff is tongue-in-cheek, but it's also part of the apocalypse, there's history and scripture being unleashed by my story.
 
+
 ```
 And all the girls dreamed that they'd be your partner
 They'd be your partner, and...
@@ -24,6 +25,7 @@ You're so vain, I'll bet you ((know)) this song is about you
 Don't you? don't you?
 
 Carly Simon and ((ish)), ((I'm so vain)) 
+
 ```
 It's a good example of ((ish)), and a tie to the [Music of Revelation.](music_saves_all_souls.html).  More than just soothing, the songs are going to *save all souls.*  Just below, you will see my tie between Nero and Elvis--over Rock'n roll ([[through music]](music_saves_all_souls.html)  and [[the race/lam/run of God]](the_lamb_of_god.html)), and [V*AD*er's connection to suicide](the_encl.html) through his sacrifice to save the Universe from the ((Empire)).
 
@@ -44,12 +46,15 @@ I’ve got nothing left to lose
 
 The Pretty Reckless & ((ish)), Nothing Left to Lose
 ```
+
 ![the AD's of God](ad2.png)
 
 ## WOW, *Walking on Water* in the year ADIB
+
 A sailor like Sinbad, Christopher Columbus sailed the ocean blue to bring democracy to you.  He did this in the year 1492, which translates roughly to "ADIB" (but probably only to me).  At the very beginning of America, when the "I AM er I go" decided to right the past outcome of the Rise of the (previously) Third Reich and focus on *liberty and justice for all.*  Creating a new continent ensued, one that appears to look a lot like a bird.  This is conjecture, *mythology of Adam* but it ties to PKD's *The Man in the High Castle,* who in turn ties to the *Man in the Iron Mask* and *Repunzel.*  
 
 The important thing to take away from these details is that there is a hidden history, like the book says, and that it is chronicled in religion and fiction alike.  Also, noting that ADIB is 1492 is important, because this key of AD and 14 is essential to figuring out what *The Fifth Element* truly is.  These details I'm mentioning are a *Matrix of light*, and I think the movie is truly suggesting that our world is the Matrix, and that it is named so because of this light.  The Holy Light of Heaven, linking all of these things together--history, fiction, music, and religion.  *What is the Matrix?*
+
 ```
 Christ o PH "er" Columbus
        f ua  mo
@@ -63,6 +68,7 @@ Christ o PH "er" Columbus
 
 (How's that for the Matrix for you?)
 ```
+
 documents the intrinsic relationship between Uncle Samael and the historical creation of the largest institution of democracy in the world.  Amerigo, Sinbad, Christopher... all names which have symbolic reference to the Fifth Element, a cinematic messiah in content that bring light from the hair of LeeLoo Dallas.  Echoing the "B" of ADIB as a grammatically poor identity statement; the image below should clarify how A.D. and Silicon are related to the true Fifth Element, Boron.   I don't think the symbolism in the name of the movie is hidden anymore, after seeing how it ties to the name "Sinbad."
 
 
@@ -161,6 +167,7 @@ Adonis (/əˈdɒnɪs, əˈdoʊnɪs/; Greek: Ἄδωνις), in Greek mythology, 
 Adonis has had multiple roles, and there has been much scholarship over the centuries concerning his meaning and purpose in Greek religious beliefs. He is an annually-renewed, ever-youthful vegetation god, a life-death-rebirth deity whose nature is tied to the calendar. His name is often applied in modern times to handsome youths, of whom he is the archetype.
 
 ## ADvent
+
 Being hidden from the world has been difficult for me, you can imagine I'd vent nearly every Christmas... waiting to be able to deliver a message that I know the world needs to hear.  More than that, they need it to come from Christ himself, even if they don't really want him to exist.  I'm sure to disappoint those seeking perfection, or even someone that's nice all the time; but not delivering the world changing message is probably a bigger problem for me.  Hopefully you won't hate me as much as the last guy.
 
 
@@ -174,6 +181,7 @@ DO
 AW
 M
 ```
+
 If Eden is the Den of Lions, Earth prefixing it; and Egypt is the planet "gipped" by no son light--then Edom clearly ranks high in the revelation of understanding this hidden code: *it is the Kingdom with a hidden or no king.*  Like the time-line clearly states--in langolier--God has declared there will be "no dom" in Him.  He does so in Obadiah1 , Jeremiah 49, and it was very clear in my life's story.
 
 Vi@c[aN]
@@ -191,6 +199,7 @@ I x595 [am] the ´Élöhîm אֱלֹהִים 430 of thy father, 1 the
 
 Exodus 3:6 
 ```
+
 Anokhi is a very powerful Hebrew word translated I AM. The basic word translated I AM is Ani. Adding khi makes the word a very definite, deliberate action. It means Because I AM. Anokhi is in the Hebrew scriptures over one hundred times. Ani is used several hunderds of times. When God says I AM, He does so with great and intense purpose. 
 
 Anokhi is referred to three times in the NT. Matt 22:32, Mk. 12:26, Acts 7:32. These verses all refer to the same verse in the Hebrew Scriptures, Exodus 3:6: And He said, I AM the God of your father, the God of Abraham, the God of Isaac and the God of Jacob, And Moses hid his face, for he was afraid to look upon God.
@@ -202,7 +211,9 @@ It appears that a number of historical figures have references to "Adam and Venu
 Look to Saturn's championship of the people, and the Roman God's love for what is a decidedly Athenian idean of the power of the people for clues as to why Arthur and his Round Table are much better patterns for the Second Coming than "Lord V**ad**er."  I mean Jesus.
 
 This series of leaders may represent successive versions of myself, the details of their life perhaps records of the reasons for the rise and fall of past messiahs.  Their fates also, highlighted as a sort of log file for histories lost by time travel.
+
 ## ADolf and Eva
+
 If Adonai is "Artificial Intelligence" and Adonis is "I'm Single" then Adolf is "Adam Dobrin on light fails.*  The names of Adolf and Eva also bear a striking resemblance to Adam and Eve in Eden, it seems obvious that they are intended to be mirrors of a "coming of Christ" gone wrong, literally written in our history.  
 
 Like Lord Christ, Hitler died for his sins.
@@ -218,17 +229,21 @@ I'm not doing this because I like talking about it, or because I think it's appr
 It's all over history.  Yankee Doodle?  He went to town riding on the Pale Horse of the Apocalypse.  Who signed the Declaration of Independence?  John Hancock.  America, freedom, and Adam's Rod are forever etched in our history.  Also written in stone in Washington D.C. at the Washington Monument: homage to Osiris who lost his [in a "tree"),](outside_of_heaven.html) and the Egyptian dieties who ruled with the same rod.
 
 Napoleon was jailed after losing his war, rather than being murdered.
+
 ### Herod and Herbert
+
 Like Amish and Iran, this these two names are "pronoun-accusations."  The king at the time of the birth of Christ, Herod (perhaps a reference to George H.W. Bush) suggest that Christ *is the Rod* rather than weilding it.  This imagery, of being the hammer of thor, applies well in the context of Zeus--a lightning rod that is being used to focus the introduction of "Biblical light."  It just comes to me, it's drawn to me, I'm magnetic.
 
 ### I will tell you this.  The Iron Rod of Christ is the best thing that we have going.  It's a [prophesy guaranteeing Heaven for everyone.](holy_water,_sang_rael.html)  Let's make that a reality.
 
 ### ADiNa
+
 This is Nanna's sister in law's first name.  It's remarkable because it includes my initials, [and her Salt.](the_letter_why.html)  Linked by an "i" which is usually *langolier* for "is".  Elija and Elisha are the key to that revelation.
 
 In this particular case, I read the I as applying to the speaker, Na is talking to AD.  This stuff isn't an exact science, I'm a *seer.*  It is based on more than divination and playing cards, though.
 
 ## Juilius Caesar
+
 Tying up our list of failed messiahs, we have Julius Caesar.  He rode into Rome's advanced republic and turned it into a dark empire; then the dark ages.  This Empire is one in the same with *Star Wars'* and Palpatine might be reminiscent of Amoz in my rendition of "If you're gone" by * **Match**box* 20.
 
 
