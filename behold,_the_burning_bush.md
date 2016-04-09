@@ -89,6 +89,7 @@ Ecclesiastes 9:11, in its full version delineates each of the planets from Mercu
 
 Ecclesiastes 9:11
 ```
+
 ## And God said "let there be light"
 
 The third reference superimposes over Earth, and the quote is “neither yet bread for the wise.”  The light of this statement is the periodic element Xe, for both an Oracle Database and the element responsible for camera flashes.  This is the location of our story of Exodus, and that whole word, taken in reverse speaks volumes.  In addition to “Xe,” the four letter command “sudo” is the Unix equivalent of “run as the God account.”  

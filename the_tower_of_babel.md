@@ -52,7 +52,7 @@ The Pretty Reckless, "Messed Up World"
 
 J "is" Us, see everyone was right after all.  J is/is "run," look another reference to this idea of my running from American Injustice as being central to religion--so am I.
 
-##Taylor-Who?
+## Taylor-Who?
 
 In August of 1966 a band called "The Doors" sang a song to a girl that would not be born for about three decades; I see things, and and the link between *The Doors* and *The Pretty Reckless* is so well laid, that I'm amazed I haven't yet been able convince her to *Light Me Up.*  This song, sent through time, is about spreading a fire... the one that is just about to start.  
 
@@ -135,7 +135,7 @@ the Hebrew Bible.
 
 ![](bindingofisaac_lackandwhite.jpg)
 
-##"THE" is a Holy Acronym for "to help everyone."
+## "THE" is a Holy Acronym for "to help everyone."
 
 "Ha" is a reference to Isaac.  This is so primarily because I say so.  Ha!  Seriously though, his father Abraham's name was not always so, prior to his covenant with God it was Abram, the astute among you will immediately notice that the change wrought by Abram's interaction with God is the addition of these same two letters to his name.  
 
