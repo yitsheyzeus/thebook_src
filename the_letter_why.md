@@ -60,7 +60,7 @@ a name of God, transliterated by scholars from the Tetragrammaton and commonly r
 
 ![I AM HE WHO IS SELF EXISTANT](1977103_407307386073175_1080548721_n.jpg)
 
-### Welcome to Adamah.  [That's Earth in Hebrew.](https://adjkjc.gitbooks.io/time-and-chance/content/the_tower_of_babel.html)
+### Welcome to Adamah.  [That's Earth in Hebrew.](the_tower_of_babel.html)
 
 {% if gitbook.generator == "website" %}
 <iframe width="854" height="480" src="https://www.youtube.com/embed/Sws3MZJIv9c" frameborder="0" allowfullscreen></iframe>

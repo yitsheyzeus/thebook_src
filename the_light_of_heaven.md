@@ -95,9 +95,14 @@ Allowing "mind control" to be used in order to hide the existence of "mind contr
 ## Peter Pan, Never Never Land
 
 # Ants Marching and the Crown of Thorns
+
 # The Walls of Jericho, China, and Echelon *will fade away.*
+
 # Fish Eggs v. Darth Wader
+
 Biodame: Paul Y shore.
+
+
 ```
 And God said, Let the waters under the heaven be gathered 
 together unto one place, and let the dry land appear: and 
@@ -105,7 +110,9 @@ it was so.
 
 Genesis 1:9
 ```
+
 ## On the road to Adamaskus
+
 King Saul, the book of Paul.  Son, and Pa.  Who is El?
 
 ## There's a single hidden letter in G-d and Norm-l

@@ -72,11 +72,15 @@ Be illuminated, the light of the world is the [day star, Sol](the_letter_why.htm
 
 
 # Modern Prophesy in Music
+
 Many bands have songs about Christ, many are inspired... all in fact.  It is this knowledge, that we are all secretly being inspired by God that tells me that the Ba of Horus, the Egyptian version of the Holy Spirit is upon us all.  United in "Ha," the two letters associated with [Isaac and Abra*ha*m.](he_laughs.html)  That son's name means... *he laughs*.
+
 ## The Dave Matthews Band
+
 *This is the last stop*, we are on the way to salvation.  Dave's songs are all about *gods gaze falling upon us with a mischievous grin* and seriously inspired me my whole life.  It turns out, he too was inspired, and the lyrics all tell a story about the apocalypse.  I quote them often, and when I do, be sure I hear the voice of God in the worlds he sings.    
 
 ## The Pretty Reckless
+
 It's all about light, from *Light me up* to *this light is driving me insane.*  Is she singing about me, or am i crazy?  Her songs, about ["running" eerily parallel the messianic story describe in *the Lamb of God*](the_lamb_of_god.html), and her words speak to me, "*Do you know who I am, do you even want to know me?*"  In the year I've been trying to tell the world I am here, this is exactly how I feel.  What are you expecting?  How does Jesus return?  
 In *Nothing Left to Lose* Taylor responds to a lyric from American Pie with "If Jesus Christ and Rock'n Roll can't my immoral soul, I've got nothing left to lose," and shes talking about this book; about explaining that Rock music is Christ talking to you, too.
 
@@ -93,8 +97,11 @@ Pictures that I took during my trip around the country appear through the book. 
 ![](16.jpg)
 
 She is created (sort of like you), her life--like many actors and actresses--a map to connect stories to Biblical and mythological characters.  It shows the divine hand, a guiding influence over the creation of these religious art works.  Johnny Depp, Keanu (Key Anu) Reeves (Reason Eve's), Cameron Diaz, Adam Brody... all link movies that are Biblical allusions--real continuations of the Bible--through their "players."  The nakedness doesn't hurt either.
+
 ## Live
+
 *Adam and Eve live down the street from ((you)), a million miles fall from grace.. thank God I ((found)) the ground.*
 
 ## I'm so *vain*
+
 Except, [*not really.  Just single.*](im_single.html)  You could say I feel like *an unsung ~~hero~~*.

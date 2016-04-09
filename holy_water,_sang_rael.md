@@ -59,7 +59,7 @@ of the waters called he Seas: and God saw that it was good.
 
 Gensis 1:10
 ```
-You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel*](https://adjkjc.gitbooks.io/time-and-chance/content/the_tower_of_babel.html).
+You should have read about Ground, Earth, and **Adam**ah in [*The Tower of Babel*](the_tower_of_babel.html).
 
 ## He was holding a little scroll, which lay open in his hand. He planted his right foot on the sea and his left foot on the land. Revelation 10:2
 

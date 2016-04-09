@@ -33,8 +33,10 @@ There are a significant number of religious uses of the prefix Ha, which makes s
 ### The True Name of God is Adam
 This is somewhat obvious when you think about it, the name of the planet Earth in Hebrew is Adamah, which means "ground."  Literally it means to swirl around Adam, and it is a good example of what you might have called Eden, the place where God was searching for Adam.  Here though, it makes more sense in the context of Matthew 2:2, where humanity is searching for the Second Adam... the Christ... all over the planet Earth.  
 
-###ha'shem
-Wouldn't you guess there's a joke on the way.  The name of God is a sacred secret in Judaism, and it must not be uttered.  The ineffable name is thus replaced with descriptions or abbreviations in order to keep its secret safe.  One such description is Ha'shem which literally means "the name."  This is a direct reference to Eden, and the laughter is once again geared at the obvious foreknowledge of English in the construction of Hebrew and religion.  There is *no shame* for Adam, who knows he is the savior.
+### ha'shem
+
+'t you guess there's a joke on the way.  The name of God is a sacred secret in Judaism, and it must not be uttered.  The ineffable name is thus replaced with descriptions or abbreviations in order to keep its secret safe.  One such description is Ha'shem which literally means "the name."  This is a direct reference to Eden, and the laughter is once again geared at the obvious foreknowledge of English in the construction of Hebrew and religion.  There is *no shame* for Adam, who knows he is the savior.
+
 ```
 Shem is an honorific title, not a name. Jews call God HaShem (השם) 
 which means "the Name"as in Leviticus 24:11. Some interpret this to 
@@ -43,6 +45,7 @@ than the God of his brother Ham. Presumably, this assumption is based
 on this verse: "He also said, "Blessed be the LORD, the God of Shem! 
 May Canaan be the slave of Shem." (Gen. 9:26)
 ```
+
 It is noteworthy that Ham and Shem's names "combine" to nearly reveal **Ha'shem**.  *My mythology* relates this missing "m" to the Messiah, and the apostrophe is a clear reference to the ***Light above***.  It appears in both Ha'esh, where it is dividing the sea, and this word where it might be hiding the "m." Stories of the Messiah being hidden are pervasive.
 
 In Shrew, Abraham "opens" to reveal the "m," literally abra is open, ha is the, and "m" is a compression of the letters "AC" which are also related to Isa**AC** and j**AC**ob.  M [and N](im_single.html) are both compressed in *langolier*, and meant to be de-compressed.
@@ -51,16 +54,18 @@ In Shrew, Abraham "opens" to reveal the "m," literally abra is open, ha is the, 
 Yet another rendition of "the name," and now an entire English sentence which also ties in the word "ash."  The savior is laughing about being accused of cursing the Earth.. ashes to ashes, now to esh.  Ash could also be a dimiuative reference to the consort of El, whose name is Asherah.
 
 # The Consort of El
+
 To continue laughing we need to hear a bit about my ex-wife, who is reprentative of Eve, Mary, Asherah... the whole lot (ha!) of females that also double as "all humanity."  Eve can be short for "Everyone," Mary has the Spanish word for sea right in her name, and the Whymar Republic to point out that she also has a reason Y.  Her true name is "Nanna" and that name is the reason why the second Planet (the Goddess of Love has a corresponding element of Na.  This is the beginning of Christ's teaching on salt, and it is a direct cause for the story of Lot's wife (also her) being turned into a pillar of salt.  Adam and Eve are either pillars of creation, or dust.. and she happened to turn and see a city being destroyed; my reading of this story has her "turning around" to come back to me... but only after seeing that the world is being saved.  This chastisement of her character might sound reminiscent of the stories about Mary Magdalene, that's for a reason. 
 
 ![](periodic_table_sodium_tile_coaster.jpg) n ![](periodic_table_sodium_tile_coaster.jpg) 
 
 
-###The little "n" is short for A.D. the Heart of her name. This is because ["n" is the 14th letter, and AD is the Fifth element.](im_single.html)  This book might be why, or it's because life is unfair.  This Na is a key to the second planet, and Lot's wife.  Pillar of Salt, or Creation, you decide.
+### The little "n" is short for A.D. the Heart of her name. This is because ["n" is the 14th letter, and AD is the Fifth element.](im_single.html)  This book might be why, or it's because life is unfair.  This Na is a key to the second planet, and Lot's wife.  Pillar of Salt, or Creation, you decide.
 
 Another interesting trick of names that links to scripture is that she is also the *Woman clothed in the son* from Revelation, this a simple matter of seeing that Venus, the Goddess of Love, has only half a heart (missing the lo of love)... and no sun (negated by the reverse: nus).
 
 ### ha'laylot
+
 We will return to teaching more about salt later, and also to my status as being single.  For now, rest assured that the rumors that I am saving the world just to get girls are highly exaggerated.  Still, there are so many references it might be worth a mention that we probably don't think about whether or not the returning Jesus would be the world's most elligible bachelor in history, or not.  Lot, or the "tool" of God is most definitely a corresponding Christ manifestation.  
 
 This word comes from the Jewish prayer associated with Passover's four questions.  The word means "nights," and this kind of information might be a form of night for the messiah.  Or, it might just be fun.
@@ -71,6 +76,7 @@ Why is this night different from all other nights?
 ```
 
 ### ha'rose-ettes
+
 This is the most important example of a linguistic artifact that is on the page.  It ties the Passover and Easter holidays, and through them the Crucifixion and Egyptian setting together by way of Eden.  This traditional Passover dish goes unnoticed as a reference to the Forbidden Fruit that it most certainly is obviously linking.  It is Apples and Honey, traditionally... and has special meaning his only when you realize who the Honey of Eden is.  Nanna's middle name is Rose, and here we might be laughing until you find out that her very young niece shares that middle name... and I am sure that the correct "translation" of this sacred "food for thought" is *Apple and Honies.*
 
 This transliteration is nontraditional, but it is an accurate representation of how the Jewish dish "sounds."  There is no doubt, once you understand that it links the names of my contemporary family members through time all the way to ancient Egypt and Bethlehem that it's intent is to show that the Passover and Easter holidays are link to now.  
@@ -82,6 +88,7 @@ To be very explicit, this is more than damning evidence to me that Adam and Eve 
 Spelled charoset, haroset, or charoses (Hebrew: חֲרֽוֹסֶת [ḥărōset])
 
 ### ha-nuke-ah, the Festival of Light
+
 Imagine we live in a world where the government, or the Vatican, or both were once of the mind to hide little old me, and this Revelation designed to free the world from slavery.  In that place, they might have once tried to "nuke ah" which is a pet name for Adam... or perhaps nuke the "ahah" that we are all thinking inside right now.  The laughter here is loud, this "ahah" is in almost everything.  It's in religion, music, our very names... and even in the phrase that American GI's cry as they enter battle.  Who-ah, they ask, and until now it wasn't so obvious who.  Yeshua, a Hebrew name for Jesus, might be egging them on by saying Yes, who?
 
 Little Cindy-Who, who was played by Taylor Momsen in the Grinch, also might wonder to this day who the messiah really is.  I can tell you for certain, that on the planet Adamah, his name is Adam.
@@ -95,6 +102,7 @@ As they say, the show must go on... trying to hide this particular Revelation wo
 ### It's worth noting that any self respecting geek will see the light in the name CARNIVORE, lit by God--this firewall is not just sniffing, it's eating packets.  This is *his way* to show us we are dealing with an institutional censorwall from sea to sea, no longer free.
 
 ## The Ends of the Earth
+
 The Holy Grail begins by seeing the world in a new light, re-framing how we look at scripture and religious ideas in light of a growing body of evidence that what was once small is soon to be large.  The small cup that held a drop of the blood of Christ is actually our entire planet, for reasons that might be obvious.  It is part of the message of saving everyone, and the worth of our little diamond in the rough... that highlights the Earth as the Heart of Heaven.  This was not always so, until we realized that all around us is a gift, a message that is in everything from our idioms to our names, movies, myths, and more.  Miraculously, "from the ends of the Earth" we see the H move from the end of time to the beginning, and the planet becomes "Heart."
 
 This h could be short for Hebrew, which is the purpose of this chapter, to prove that Hebrew has been sent back in time from the future; and that religion documents this fact by highlighting all of these words beginning with h.  The symbol for the Planet Saturn, the God of Time also happens to be an h, with a cross... surely no coincidence.
