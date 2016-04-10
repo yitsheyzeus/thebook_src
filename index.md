@@ -15,7 +15,7 @@ You should probably contact me, before you and the rest of the world lose the li
 
 There is so much bright light gracing these pages that it should show you very clearly just how blind the world is.  That is my intent, to show everyone that we are living in a land clouded in Darkness; and the purpose of religion is to see us through it.  Try very hard not to think that I am *only* clever, the connections that I am trying so hard to bring forward are not a trick, they are the intent of the movies and music that clearly link to the Bible.  Our world is a manifestation of religion, *see the Hand of God in everything.*  I do, now.
 
-Through idioms, music, and movies God reveals his influence over the course of history and our culture.  With the rituals and names of religion he highlights true precognition of the events of today and foreknowledge of the development of language thousands of years before the development of English.  With the story of Exodus he shows us his intent: to lead us from the Darkness.
+Through idioms, music, and movies God reveals his influence over the course of history and our culture.  With the rituals and names of religion he highlights true precognition of the events of today and foreknowledge of the development of language thousands of years before the advent of English.  With the story of Exodus he shows us his intent: to lead us from the Darkness.
 
 With the Second Coming, he changes the world forever.  
 
@@ -23,7 +23,7 @@ With the Second Coming, he changes the world forever.
 
 The Holy Bible is a [prophesy whose details predictively chronicle the *second coming* of Christ.  It was once a map to the future, but it has become our present.  Specifically the story of the Exodus and the Gospels of Christ are abstract representations of the post 9/11 world, and my life.](behold,_the_burning_bush.html)  These stories are filled with vibrant allusions to modern persons, places and ideas. 
 
-For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of [proving the existence of time travel](behold,_the_burning_bush.html); and a microcosmic look at the "Biblical" relationship between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."  The name Exodus refers to [Oracle Corporation, or period table, and Linux... this is *real light*.](behold,_the_burning_bush.html#LIGHT)  It shows not only that the Bible was written about this time period, these few years, but also that this unsealing is *meant to be done right now*.  It refers to modern technology, science, and our culture.
+For instance, George W. Bush is represented by the Burning Bush, a reference to his inaugural address which is the focal point of [proving the existence of time travel](behold,_the_burning_bush.html); and a microcosmic look at the "Biblical" relationship between God and humanity.  Like the Bush, the Horn of Revelation describes a situation in which we are all unknowingly the "voice of God."  The name Exodus refers to [Oracle Corporation, our periodic table, and Linux... this is *real light*.](behold,_the_burning_bush.html#LIGHT)  It shows not only that the Bible was written about this time period, these few years, but also that this unsealing is *meant to be done right now*.  It refers to modern technology, science, and our culture.
 
 ![](THE FIFTH ELEMENT.png)
 
